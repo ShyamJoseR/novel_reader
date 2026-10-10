@@ -5,3 +5,6 @@ client/dist/
 .cache/
 server/data/user-data.json
 *.log
+.wrangler/
+client/.wrangler/
+server/.wrangler/
