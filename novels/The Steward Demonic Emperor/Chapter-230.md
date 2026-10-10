@@ -1,0 +1,127 @@
+# Chapter 230, The Legend of a Monster
+
+“Steward Zhuo, we know our wrongs. Spare us!” Sly Demon rolled on the ground begging.
+
+“What Steward Zhuo, it should be Daddy Zhuo. Let us go, we won’t do it again!” Scrooge Demon was wailing in pain.
+
+“What Daddy Zhuo, it should be Grandaddy Zhuo. Please...” Violent Demon was even crying, but he didn’t get to finish as he glared at Scrooge Demon. Then he punched his face, “Damn it, you dare take advantage of me?”
+
+Scrooge Demon held his purple eye, having no clue what happened. But Wimp Demon couldn’t take the pain and said, “Elder bro, it was the second bro calling him daddy. Then you started calling him granddaddy. Don’t blame him!”
+
+Widening his eyes, Violent Demon cuffed Wimp Demon, “Bastard, silence is frickin’ golden!”
+
+“Why do you hit me when it was all your fault?” Scrooge Demon instantly understood having heard Wimp Demon. He charged with a rage filled fist.
+
+Wimp Demon was glum, and even though he didn’t join the hustle and bustle, he circled behind eldest brother and whacked him with a fist whenever he had the chance.
+
+Third bro, Sly Demon, who wished for nothing more than to see the chaos blow out of proportions, held his head from the pain while cheering from the side.
+
+The four thus entered their routine squabble, making it all so lively.
+
+Zhuo Fan’s face twitched from all the ruckus, popping a third vein. He never met such hard to deal with weirdos. They even had time to quarrel while being tortured by the Bloodworm!
+
+“It seems a bit of pain is not up to your standards. Then how about we kick things up a notch!” Zhuo Fan made another sign.
+
+Pff!
+
+The four demons spurted blood and turned blood red all over as they scrambled from the pain. It was so excruciating they hadn’t had the mind to quarrel anymore.
+
+Zhuo Fan panted, almost blowing his top at the four. When he calmed down, he said, “Elder Li, who is that Gu Santong? Why is he so dreadful?”
+
+Shaking his head, Li Jingtian sighed, “I am not clear either, but legends say Gu Santong is called Invincible Scamp. Undefeated throughout his life. Three centuries ago, he caused a storm through Tianyu, throwing the empire on the brink of collapse . He later vanished into thin air, never hearing from him since. I never thought we’d meet him here!”
+
+“What, three hundred years ago? How is he looking so young if he’s so old?” Zhuo Fan was shocked.
+
+Li Jingtian was also puzzled, “I am not sure either. I only heard rumors about him. If he truly is the Invincible Scamp, then he is indeed three centuries old! Or perhaps, he is Invincible Scamp’s descendant, carrying his name...”
+
+“Hi-hi-hi, Invincible Scamp Gu Santong has caused immense waves with his indomitable power at the time, how can someone else have his title? Moreover, you’ve seen his method, if he is not the real Invincible Scamp, how could you have ended up in such a sorry state?”
+
+Violent Demon shouted his mockery, while the other demons’ wailing at the side turned into a creepy combination with snickering in the mix.
+
+Li Jingtian caressed his beard and nodded. The four little shits’ words were mostly senseless blabber, dumb as wood, but they spoke reason, sometimes. He didn’t believe there was anyone outside this legendary Invincible Scamp that could bring him to such a sorry state.
+
+Zhuo Fan snapped a glance at the four, “Elder Li doesn’t know about Gu Santong, but you do?”
+
+“Damn right. This geezer may be old, but he knows shit having been born way before the war three hundred years ago!” Violent Demon mocked.
+
+Zhuo Fan scowled, “You’re not much older than Elder Li so how do you know then?”
+
+“He-he-he, Steward Zhuo, there’s something you’re missing. When Gu Santong was causing havoc in the empire, he not only shamed the seven houses, but the entire Tianyu Empire. This made his name taboo to the whole empire. Among the seven houses, only house lords know of his endeavors and that only passed through speech from the previous house lords. The elders hardly know a thing about him. And that is because of the shame he represented, hi-hi-hi...”
+
+Violent Demon’s creepy laughter seemed to mock the seven houses, “Demon Scheming Sect is different. Even before Tianyu was in uproar, our elders warned us to not get entangled with this monster. I can only blame our rotten luck to have stumbled on him just as we got out of that wretched place. Ah, woe is me...”
+
+Having recalled the bitter experience, Violent Demon started crying along with his three demons, who were also wailing on top of things.
+
+Zhuo Fan had it, “Stop crying and tell the truth for once!”
+
+“Alright!” The four demons’ rivers of tears dried up on the spot, “We ask that Steward Zhuo spares us. Let us clear our thoughts...”
+
+Zhuo Fan squinted and sighed but still made a sign to stop their torture. They then resumed their creepy laughter and jumped in joy.
+
+Zhuo Fan saw they hadn’t learned their lesson even a fraction and he was fuming mad, “Explain it to me clearly and I’ll forgo your previous transgression. Or else...”
+
+His fingers moved, threatening them with more torture and they panicked, “Steward Zhuo, don’t worry, we know when to be serious. We won’t ever dare fool you again!
+
+Zhuo Fan nodded satisfied.
+
+The four looked at each other and Violent Demon was the first to start, “As far as we know, Invincible Scamp Gu Santong’s life is an odd one. Simply unheard of!”
+
+“What do you mean?” Zhuo Fan frowned.
+
+Violent Demon shook his head and said, “It’s so damn baffling that even we don’t know the full extent of this oddity!”
+
+Zhuo Fan almost fell and his eyes started spewing flames of rage as he cursed, “Cut the crap! Carry on to egg me, and I’ll give you a world of pain!”
+
+Zhuo Fan was about to do just that when Sly Demon jumped in, “Wait, Steward Zhuo, eldest bro is serious. Gu Santong is truly baffling that even we know little of him. He just sprung up out of nowhere. With the imperial family, the empire’s three guardian sects, and the seven houses’ power, not even an ant could’ve caused such havoc, least of all a man. But isn’t it bizarre how Gu Santong just popped up from thin air?”
+
+Zhuo Fan’s hand stopped in mid sign.
+
+The four demons had some screws loose, most of the time, but Sly Demon was speaking some reason. It was baffling how an unknown powerful devil just showed up like that.
+
+[From the Sacred Domain perhaps?]
+
+Zhuo Fan spoke, “Go on!”
+
+Violent Demon continued, “The kid always had this appearance, that of an eight year old boy. But he was only in the 5th layer of Profound Heaven Stage at the time. But after three hundred years, he is still as young, yet his cultivation increased to the 2nd layer of Radiant Stage, quite slow I might add. What never changed all this time is him holding the title of Tianyu’s strongest. Before, he was the strongest beneath the Radiant Stage and now he is the strongest in the Radiant Stage!”
+
+“Oh, that baffling?” Raising an eyebrow, Zhuo Fan ‘s heart was filled with suspicions.
+
+If this kid was an old monster, did he perhaps use cultivation to keep such appearances? That may also explain why his cultivation went so slow.
+
+But who was dumb enough to keep himself as young as a child? They’d usually stop around 16. This way they could partake in some of the more pleasant aspects of life, he-he-he...
+
+This seemed to have made Zhuo Fan recall a veil-covered face and the demure figure. But Zhuo Fan shook his head at that thought.
+
+He was aiming to become an overlord on the demonic path, how could he ever let himself get bogged down by kinship?
+
+[Perhaps the kid’s thinking the same thing.]
+
+So far, Zhuo Fan could understand him, “Continue!”
+
+“He is really queer. He doesn’t like anything, except eating ingredients. If it was anyone else, he’d be already blown to bits by the potent ingredients. But he is unscathed! Steward Zhuo, I’m sure you can imagine by now, which houses’ ingredients are the most appealing when this freak ever ran out of them!”
+
+“Imperial family and the seven houses?” Zhuo Fan’s eyes widened and suddenly showed a sly grin, “Could it be..”
+
+“Hi-hi-hi, Steward Zhuo sure is evil, thinking about plunging the world into chaos. Though it is the truth nonetheless. The kid went to Pill King Hall’s fields and picked them clean of any and all herbs raging from 2nd to 7th grade. He even gobbled those 8th grade ones that took a thousand years to grow! How could Pill King Hall sit still after that? So their elders chased after him. The kid didn’t use any martial art, but his fists are insanely powerful. In just a single move, the elders were wiped out completely! I am sure this old geezer here knows the taste of that fist the best, he-he-he...”
+
+Violent Demon mocked Li Jingtian.
+
+Li Jingtian nodded, breaking out in sweat just thinking about it.
+
+In their clash, Gu Santong didn’t even punch, only threw him like nothing and already gave him a deep wound. If it were a punch instead, his life would’ve been forfeited.
+
+[Such outstanding power!]
+
+Taking a deep breath, Li Jingtian shuddered from the memory and fear crawled into his heart.
+
+This never happened in all his long years as Mad Dipper!
+
+Zhuo Fan understood his state of mind and paled as well. He patted Elder Li’s shoulder in comfort, and spoke with seriousness, “And then?”
+
+“Hi-hi-hi, then Pill King Hall requested assistance from Regent Estate and they sent their elders on the kid’s trail, only to suffer the same fate. All the while Gu Santong was rampant in robbing ingredients everywhere he went, even attacking the warehouses of the seven houses and leaving them with nothing. Without a choice, the always squabbling seven houses put aside their differences and worked together for the first time. They issued the worst and most cruel order since the empire’s existence, the Demon Purging Decree...”
+
+[Say what?!]
+
+Zhuo Fan’s eyes widened in shock. He recalled how everyone spoke of this Demon Purging Decree as the most gruesome thing in existence. And the first use was on Gu Santong. But how was that kid still alive now?
+
+[Just what kind of power does he have? How could he fight against an entire nation and only as a damn Profound Heaven expert...]

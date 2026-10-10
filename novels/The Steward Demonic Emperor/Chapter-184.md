@@ -1,0 +1,131 @@
+# Chapter 184, Seven Houses Gathering
+
+The Caged Dragon City leaned onto the endless miles long Bulwark Range. Four towering peaks, jutting cliff edges, and cloud wreathed hunks of rocks had the city surrounded. Seen from above, the four looked like spikes nailing down a proud dragon, dooming it for all eternity.
+
+And this city here was where the head of the seven houses, the Regent Estate, laid its roots.
+
+An old man in his fifty, with sunken cheeks and pale as paper, was now standing before the looming city gate. His hair was in a bun, just like a scholar’s, evoking a refined and courteous air. But the bloodthirst in his eyes ruined this image.
+
+Two Profound Heaven experts flanked him, yet, their attitude was quite deferred toward the old man, with a hint of fear mixed within.
+
+Whoosh!
+
+Suddenly, three lights flashed before them. They were none other than Veiled Dragon Pavilion’s Pavilion Lord, Long Yifey, 3rd elder and Long Jiu.
+
+“You honor me, Pavilion Lord Long, with your arrival. Do forgive me for coming so late to welcome you!” The scholar half bowed to Long Yifey, yet, there was no trace of courteousness on his face.
+
+Long Yifey returned the greeting with haste and respect, “It is of no importance. How could I possibly demand Sir Leng come in person? You have given me a world of respect just by waiting for me.”
+
+“Ha-ha-ha, Pavilion Lord Long is courteous. It is only proper I do so, as the steward of Regent Estate!” Sir Leng cupped his hands and his lips curled into a wide smile.
+
+Long Yifey nodded but felt his heart in a vice.
+
+Around a man they called Unwonted Contriver Leng Wuchang, one had to be mindful of his every little gesture at all times, lest they reveal something they wouldn’t want to about themselves. Lest they would unwittingly allow him to pry into Veiled Dragon Pavilion’s secrets.
+
+Even the other six house lords treated meeting Sir Leng with more gravity than seeing the emperor.
+
+Whoosh!
+
+Three more figures arrived just then. Looking over, they were Hell Valley’s Valley Lord, You Wanshan, along with his Grand Elder and one-armed 5th elder. Perhaps the rage and humiliation still held him in their grip for his features were tightened and morose.
+
+After exchanging greetings with Leng Wuchang, and some short pleasantries, Leng Wuchang flicked his cold eyes on Long Yifey, “Humph, Pavilion Lord Long, enemies always seem to bump into each other. This is the second time we meet since our audience with the emperor.”
+
+“Ha-ha-ha, quite so. Life is fickle like that. It seems, however, after we parted from the imperial capital, Veiled Dragon Pavilion stayed the same, yet, I find it that not to be the case for Hell Valley.” Long Yifey chuckled, the sarcasm clear in his eyes as well.
+
+This open jab at Hell Valley was an obvious mockery to them losing two great generals. First the demise of You Guiqi, and second, the crippling of 5th elder, Diamondback Ape.
+
+Hell Valley’s losses were tremendous, falling dreadfully short in power compared to Veiled Dragon Pavilion.
+
+You Wanshan’s face contorted in rage and stomped forward, his power threatening to break out as he spat, “Long Yifey, come and see for yourself if Hell Valley is still the same or not.”
+
+“Humph, you think the likes of you scare me?”
+
+Snorting, Long Yifey’s eyes were sharp, letting his power ooze out. The two peak Profound Heaven experts’ auras clashed, putting pressure on the two Profound Heaven experts belonging to Regent Estate into retreating.
+
+Even though Regent Estate was crowned as the strongest house, Long Yifey and You Wanshan were not to be taken lightly either.
+
+Few present could push back these two elders, even in the Regent Estate.
+
+The two sides bared their fangs, needing one last push to blow everything up in smoke. Leng Wuchang coughed, “Gentlemen, please, this is Regent Estate!”
+
+Those simple words were as if spoken by a god as it shook the hearts of the two and their aura vanishing.
+
+They proceeded to instantly bow in apology, “Please show leniency, Sir Leng.”
+
+“It’s fine. Just remember that we are in Regent Estate and you are our guests. You will make it difficult for me if you start fighting here. Please take it elsewhere if you want to sort your differences. That’s all I’m asking.”
+
+Leng Wuchang’s face was as blank as ever, but the words were chilling to the bone. His eyes even contained a hint of reprimand when looking at them. Despite the anger welling in the two, they could only let it simmer.
+
+He had the monster that was Regent Estate behind him, someone none of the six houses wanted to make an enemy of.
+
+“Ha-ha-ha, this place sure is lively. Valley Lord You, Pavilion Lord Long, it’s been ages!”
+
+A laughter broke out, followed by three towering figures in green. Their leader was a wizen old man with silver-haired while the other two were his elders. One was red-haired and the other violet, yet, each one of them had an eerie hint of green in their eyes.
+
+“Hall Lord Yan Bogong?” Squinting, You Wanshan mocked them, “You seem to be quite springy, for someone who had his best alchemist slaughtered in cold blood.”
+
+“Ha-ha-ha, Valley Lord You, there’s no need to provoke me!”
+
+Yan Bogong smiled, “Pill King Hall is different from you. You always go on a murder spree every day, with every one of your elders a mighty general – my condolences for the loss by the way. While we at the Pill King Hall pursue alchemy above all else. Only the best alchemist is worthy of the Vicious Pill King title. Even if we were robbed of our precious alchemist, we still have many more that can fit the role as well. Just as we have many 7th grade alchemists like Yan Song. Since they have always been in his shadow for so long, they must be letting it all out in laughter now.”
+
+“In short, we do not lack alchemists. Our next Vicious Pill King will achieve just as his predecessor had, taking the title of the best alchemist in Tianyu.”
+
+Yan Bogong stood proud before the two, while You Wanshan cursed silently, “A cold and cruel hell is a more fitting place for you!”
+
+Long Yifey snorted, “Hall Lord Yan seems to be quite confident. I heard that in the Hundred Pill Meeting held by Drifting Flowers Edifice, before Vicious Pill King’s untimely demise, he fell utterly short to the more skilled Zhuo Fan. Do tell, how is the best alchemist in Tianyu one of yours now, hmm? I certainly don’t see it.”
+
+For the first time since he came, Yan Bogong’s face took a darker tone, his eyes flashing with bloodthirst, “Humph, and if Zhuo Fan dies? The dead can’t compete with Pill King Hall in taking the best alchemist title.”
+
+“What? Zhuo Fan? Where is that devil?”
+
+A sudden bark rang everyone’s ears. It followed with the arrival of three figures in blue. A middle-aged man with delicate features walked to Leng Wuchang, “Sir Leng, hasn’t Zhuo Fan been dealt with yet?”
+
+Leng Wuchang frowned.
+
+Merry Woods was the dumbest ally no one would ever want. [Could you speak any louder? I don’t think everyone heard you clearly.]
+
+Too little too late. Long Yifey could already guess as his eyes glanced at the two.
+
+Leng Wuchang coughed, “House Lord Lin, please mind yourself. We are all here to strategize on how to rid the world of that devil.”
+
+“Oh, Lin Rufeng, why do I get the feeling you already began to act?” Lin Rufeng’s eyes searched for a clue, a tick, anything.
+
+Lin Rufeng nodded without a care, “Damn right. That punk killed our 6th elder. How can we not retaliate? This time, we sent two Profound Heaven experts...”
+
+“House Lord Lin, Zhuo Fan is most cunning. It is not appropriate for Merry Woods to act alone. Let us all work together on this after the Seven Houses Gathering.” Leng Wuchang intervened before Lin Rufeng’s loose tongue could do even more damage.
+
+Lin Rufeng was startled, [What do you mean alone? Weren’t you in it as well?]
+
+But Leng Wuchang’s deadly glare shut him up before he could open his beak.
+
+However, Long Yifey could already guess what happened. [Regent Estate has been on the move even before the Seven Houses Gathering. And they excluded Veiled Dragon Pavilion it seems.]
+
+It was a clear indication that Regent Estate crossed Veiled Dragon Pavilion from their ally list.
+
+[This spells trouble. If the Regent Estate goal is to rule all seven houses, they are sure to make an example out of Veiled Dragon Pavilion by eliminating us.]
+
+Long Yifey secretly sighed. [I can only pray for Zhuo Fan’s safety, that he will assist us once he rises to power. You must stay alive at all costs!]
+
+“Ha-ha-ha, it’s been a long time since it’s been so bustling here. It must’ve been what, a century since our last gathering?”
+
+A sudden chuckle followed a scholarly middle-aged man with a long beard joining them with two elders behind. And one of them was Sword Marquise Abode’s 8th elder, Jian Suifeng.
+
+Jian Suifeng and Long Jiu’s eyes met and they nodded at each other.
+
+In Drifting Flowers City, Zhuo Fan pulled the strings in getting Sword Marquise Abode and Veiled Dragon Pavilion secretly more acquainted. Long Yifey’s eyes shined at the newcomer, finally meeting an ally, and laughed, “Ha-ha-ha, Abode Lord Sky Breaking Xie Xiaofeng, we meet at last!”
+
+“Pavilion Lord Soaring Dragon Long Yifey, I’ve been looking forward to seeing you as well.” Xie Xiaofeng cupped his hands, laughing together for a reason only they knew.
+
+These two were house lords yet, they have never once met before but since they were allies now, they saw each other in a better light.
+
+Leng Wuchang’s brows trembled.
+
+“The seven houses are almost all here. But in light of Drifting Flowers Edifice’s unfortunate disaster that demon caused, I believe they have their hands tied and can’t join us. Let us...”
+
+“Who said Drifting Flowers Edifice’s hands are tied?”
+
+A clear and powerful voice cut Leng Wuchang’s speech short. Then a bang echoed as a golden staff with a dragon head smashed the ground.
+
+The sight of her caused the others to widen their eyes, even Leng Wuchang.
+
+[The old hag still lives...]

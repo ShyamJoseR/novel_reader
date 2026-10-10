@@ -1,0 +1,149 @@
+# Chapter 817: King Among Beasts
+
+Proofreader: Papatonks
+
+“What’s wrong with him?”
+
+It was the first time anyone saw the sixth prince lose control. The Touba siblings looked at Zhuo Fan with a questioning gaze.
+
+Zhuo Fan eyed him, realizing something. Then he turned around and continued walking deeper into the pitch-black tunnel.
+
+Lian’er caught up, curious, “Zhuo Fan, do you know something we don’t?”
+
+“I don’t.”
+
+“Then why did the sixth prince strike?”
+
+“To silence her. Go ask him if you want.” Zhuo Fan spoke with a cold face. Lian’er pouted and stomped.
+
+The sixth prince took a deep breath to calm himself, then went after them. His mood never went back to his cheerful self, actually turning graver than Zhuo Fan.
+
+Lian’er was perplexed and dying to know, but Tuoba Liufeng shook his head.
+
+Something was definitely up, everyone could see it, but it was not like you could just ask about it. Even if they did, he might not reply. So the better option here was to stay silent and not provoke him.
+
+Lian’er had to stifle her suspicion for now as the group went forward.
+
+They soon reached the end of the tunnel, faced with a pitch-black stone wall. Lian’er asked, “A dead end?”
+
+“Ha-ha-ha, fool, if it’s a dead end, how did that couple get here to enjoy themselves? Besides, with how many rooms there are around, with the guy calling it his training room, it’s clear that people come here often to train.” Zhuo Fan mocked.
+
+“Girlie, did you leave you head outside the cave? You must really have no care for your life, ha-ha-ha.”
+
+Lian’er was fuming mad, “Why you…”
+
+Ignoring her, Zhuo Fan felt the stone wall and grinned, “This is a defensive array, just like the one back in Demon Scheming Sect. Without a specific technique of the sect, one just can’t get in.”
+
+“What now? We’re no Beast Taming Sect disciples. How could we know the right technique?” The sixth prince shouted.
+
+Zhuo Fan ignored him, “You sound quite sure this is Beast Taming Sect’s land.”
+
+“Uhm, didn’t you just say the same thing? And also that guy…” The sixth prince showed a bright smile.
+
+Snickering, Zhuo Fan said, “It was just a guess, and that guy said he was from the Beast Taming Sect, not that this is its land.”
+
+“I guessed it then.” The sixth prince blurted.
+
+“Oh? Then should we go on?”
+
+“Uhm…”
+
+The sixth prince looked hard at Zhuo Fan. Lian’er found it very odd. Zhuo Fan had been going about looking for something from the start.
+
+[Why then is he starting to question the sixth prince? Or is it something the sixth prince asked him to find?]
+
+The sixth prince was the only one who knew Zhuo Fan’s intention. So the sixth prince bowed, “I’m accompanying sir Zhuo to look for what sir is after. It is at sir’s discretion to continue or not.”
+
+“To me it’s nothing, while it spells trouble to you. Going back just like that?”
+
+HIs brow quivering, the sixth prince pondered then nodded, “Everything will go per Sir Zhuo’s wishes. As your fan, I can only give you my full support.”
+
+“In that case…” Zhuo Fan nodded.
+
+The sixth prince stared at the wall with a tense heart.
+
+“We go on.”
+
+Zhuo Fan grinned and came to a decision. The sixth prince was beaming with joy. The Touba siblings were stumped.
+
+[What’s up with them?]
+
+[Is it Zhuo Fan looking for something, or sixth prince?]
+
+Ignoring their curious gazes, Zhuo Fan’s left eye flashed with a black thunderflame. It shot straight at the wall.
+
+Apocalyptic Thunderflame Eye!
+
+The minute mote of fire exploded into a roaring flame.
+
+The tiny flicker of flame looked small, but it exploded the instant it touched the whole wall, covering it in scorching flames.
+
+Sss~
+
+The black thunderflame licked the wall, with the lightning crackling over it, jarring the ears of those present. The spectators were afraid of it, getting away from it so it would not jump on them and kill them as well.
+
+They had no clue what that thing was to give off such dread. Just looking at it was like staring death in the face.
+
+The pitch-black wall burned away to reveal a three-meter tall exit. Beyond it was a lush forest, mesmerizing and soothing. The thick spiritual energy hit them head on.
+
+[It really is Beast Taming Sect’s land.]
+
+With an evil smirk, Zhuo Fan led them out, happily looking around this paradise, “Figured as much, a World Wind Tunnel can be a paradise or hell, but no matter which, no one from the secular world can have it. Only a sect can truly take it for itself. I should’ve known the minute I got to Quanrong. The first place too look had to be the Beast Taming Sect, ha-ha-ha…”
+
+Zhuo Fan showed a pleased smile, while the other three were taken in by the glorious sights around them…
+
+Bam!
+
+A loud sound echoed as two creatures a hundred meters tall arrived before them with their claws ready.
+
+The trio were startled, paling and crying, “7th grade spiritual beast? And two of them?”
+
+The Beast Taming Sect was known in the western lands for their beast related skills. All the cultivators in Quanrong also followed a similar path when they trained. They might get to tame the spiritual beast outside, but a 7th grade spiritual beast was beyond them.
+
+But in the Beast Taming Sect, two of such creatures appeared, scaring them to death.
+
+Only Zhuo Fan, having seen the true king among beasts, disregarded them.
+
+A black flame flashed in his eye as Zhuo Fan spoke, “Beat it!”
+
+Shuddering, the two spiritual beasts showed dread in their eyes. Then they blacked out and slumped on the ground. Zhuo Fan’s outrageously destructive aura knocked them right out.
+
+The others looked at Zhuo Fan agape.
+
+They knew Zhuo Fan could scare beasts, but now he could knock them out.
+
+[Just where the hell did he learn this strange beast art?]
+
+Zhuo Fan was stunned as well. He only wanted to scare them off, but then they suddenly collapsed.
+
+[The destructive thunderflame really is beyond the five great sacred beast powers, even more effective than the azure flame.]
+
+He grinned and walked on.
+
+He finally felt he was king among beasts…
+
+In an ancient and quaint hall, a pale middle-aged man was sitting on a throne. The lines of elders on each side released powerful auras: Ethereal Stage experts.
+
+Looking at the jade slip flashing in his hand, the middle-aged man frowned, “The fighting is tense. I thought getting Xie Wuyue’s thousand sacred stones was an easy deal, but even with our fifty ethereal elders joining the war against Tianyu, we’re still at a standstill. Even worse now that Elder Laine is asking for help. What do you think?”
+
+One elder shook his head.
+
+“Sect Leader, in the recent years, Tianyu’s power has grown beyond anything we’ve seen. Even without the empire’s three guardian sects stepping in, they alone have the strength to not only fight back our fifty Ethereal Stage experts but even hold the advantage.”
+
+Another elder stood and bowed, “From what I can tell, for us to win, we have to send more men!”
+
+Bam!
+
+Following the loud noise, a buffed man with black beard shot in rage, “Humph, send what? The elders and venerables we sent must be heavily wounded if not dead. Sending anymore will only mount our casualties.”
+
+“This is a problem between Tianyu and the three guardian sects. Xie Wuyue wants to waken those traitors and wants to do it through us. Ren Xiaoyun wants to use the weakened Luo clan to control Tianyu as well. that’s why he’s holding back and watches from afar. But this is Tianyu’s problem, what does it have to do with us? Have you forgotten the bitter lesson from eight years ago? Tianyu is cunning, twisted and treacherous. Last time they took a large piece of fertile land, cutting our income by half. Are we to do it again? “
+
+“Yeah, yeah…”
+
+“That’s true. It’s best we don’t get in other people’s business…”
+
+The other elders nodded.
+
+The Sect Leader crushed the jade slip, hesitating. Was he to send more men or draw them back? He was in a dilemma, trying not to fall for those bastards’ plot, again.
+
+Just then, a sound echoed throughout the sect…

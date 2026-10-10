@@ -1,0 +1,131 @@
+# Chapter 470: Empty City
+
+Boom~
+
+The rumbling earth announced a flood of spiritual beasts marching for the gorge.
+
+There was not even a stone around the entrance, only a sign saying Lone Goose Gorge.
+
+“Stop!”
+
+The leading general raised his hand. His wolves came to his side, “Commander, what is it?”
+
+Tuoba Tieshan scrutinized the thick mist and the gorge, “Old Dugu must be close, on account of his exhausted men. This is the only place within a hundred miles to hide his army.”
+
+“Howling Wind Wolf, pick seasoned men and scout the gorge!” Tuoba Tieshan ordered.
+
+Howling Wind Wolf bowed, “At your command!”
+
+He gathered a few thousand hardened soldiers into a division, each riding a violent spiritual beast as they marched in.
+
+He barely took a few steps past the entrance of the gorge and he heard thunder above him and raging flames exploding into flaming snakes from the ground beneath him. His team was trapped.
+
+Howling Wind Wolf cried, “Array! Retreat!”
+
+Too little too late. A blue glow shot for him blasting him and his formation everywhere, cutting away the only advantage they had.
+
+Howling Wind Wolf spat, “Dugu Feng!”
+
+“He-he-he, got you!” Dugu Feng charged with his hundred thousand troops. Their hardened gazes and the ferocious looks didn’t look like any exhausted troops he ever saw.
+
+With his spiritual beast formation all over the place, there were hundreds of spiritual beasts breathing their last in a mournful and agonizing cry.
+
+It was lucky that these were spiritual beasts and not soldiers, or the damage would’ve been in the thousands.
+
+[For god’s sake, Dugu Army never loses its mettle. Fighting now will only lead to defeat. I better retreat.]
+
+Howling Wind Wolf gathered the rest of his beasts and used his art to speed away from the gorge, “Dugu Feng, fight me if you dare!”
+
+“Save your taunts, it won’t work.” Dugu Feng snickered, watching him go.
+
+Howling Wind Wolf relaxed, having obtained an easy retreat.
+
+Just what he wanted, using reverse psychology to make Dugu Feng falter from chasing. Or he’d be decimated along with his division with Dugu Feng’s style.
+
+He thought Dugu Feng believed it to be bait and stayed put, when in fact it was all in Dugu Feng’s plan to let him go.
+
+“Big brother, did they buy it, Marshal’s empty city tactic?” Dugu Lin asked Dugu Feng.
+
+He nodded, “Yes, or they’d be marching their entire million large army at us with no chance to resist since…”
+
+Dugu Feng looked at his men, “These are the only ones still standing.”
+
+Howling Wind Wolf fled with his tail between his legs and routed his troops. Tuoba Tieshan asked, “Howling Wind Wolf, what happened? From what I heard it seems you were duped?”
+
+“Commander, Dugu Army has set up camp inside as you predicted. But they have arrays in place. Adding the narrow gorge, our beast army can’t use their numbers to our advantage. And if we go in too few, we’ll lose…”
+
+Howling Wind Wolf was sullen. Tuoba Tieshan spoke, “Even with arrays, few of their men can even stand…”
+
+“No, no, no… They are filled with zest. Dugu Feng’s division is at full power, stronger than ever. And with the array, he had me suffer a crushing defeat!” Howling Wind Wolf sighed.
+
+Tuoba Tieshan was skeptical, “Slaughter Wolf, test them out. But at any sign of them holding strong yet, you are to come back at once.”
+
+“Understood!”
+
+Slaughter Wolf bowed and led a few thousand of his eager and bloodthirsty men towards the gorge.
+
+Just like in Howling Wind Wolf’s case, lightning and fire came from everywhere. But he grew excited instead, pushing forward with his Heaven-drawn Halberd.
+
+Not for long though, as the blue light came for him just the same in the form of Dugu Feng’s division. Dugu Feng even laughed, “Eight Wolf Wardens leader, Slaughter Wolf. Taking him will be cutting Tuoba Tieshan’s arm!”
+
+“Humph, I’d like to see you try!” Slaughter Wolf’s men gathered their killing intent in their arm, while his halberd whistled through the air in a slash.
+
+Bam!
+
+The white and blue glows collided, canceling each other out. While Slaughter Wolf’s slash sent Dugu Feng’s men flying.
+
+His eager mockery was cut short as roaring shouts echoed throughout the gorge. The other tigers made their glorious appearance with their own mighty division.
+
+Their soldiers were the peak of power, bursting with energy.
+
+[Dugu Army still has fight left in them?]
+
+Slaughter Wolf signaled for retreat. No matter how cocky, he knew his limits. Facing four tigers was bad enough, they also had a field advantage with an array in place.
+
+A battle now would be most discouraging, and costly.
+
+Erring on the side of caution, Slaughter Wolf vanished from the mist and out of the gorge.
+
+Just missing out on the three tiger’s divisions fading out into nothing.
+
+The brothers reunited and Dugu Lin asked, “Big brother, how are you holding?”
+
+Taking a deep breath, Dugu Feng held his chest and nodded, “I can still take it, just that my chest is heavy. Slaughter Wolf is no joke.”
+
+“We’re fortunate for godfather’s foresight, that Tuoba Tieshan will send scouts first. We hastily drew a firestorm array, a lightning array and even an illusion array or we wouldn’t have scared them, ha-ha-ha…” Dugu Lin chuckled, “Big brother, only your men are real. Ours are the bluff. We would’ve died if Slaughter Wolf didn’t buy it.”
+
+The four laughed it out.
+
+The clueless Slaughter Wolf bought it hook, line and sinker as he reported, “Commander, they’ve set up an ambush. Dugu Army hasn’t lost many men either. From what I saw, four hundred thousand men at the minimum are still holding strong.”
+
+“With that many standing in formation will make attacking fruitless!” Tuoba Tieshan frowned, “Was I wrong? Old Dugu’s men haven’t grown weary? The old timer sure knows a thing or two.
+
+“Surround the gorge, we’ll starve them out. Let’s see them come out then!” Tuoba Tieshan ordered.
+
+The men bowed.
+
+The four tigers noticed their movements and saw no attack coming anytime soon. They went deeper into the gorge, to their camp, but left the men behind as guards.
+
+Around the command tent, the soldiers were laying down as far as the eye could see.
+
+After the dragon’s flight, they were more than just spent, needing days to recover.
+
+Leaving but a few tens of thousands helping the tigers scare the Quanrong.
+
+Or they’d be marching into the gorge and cull down Dugu Army like mowing grass.
+
+Although the danger had yet to pass.
+
+“Marshal, Quanrong army has us surrounded to cut our supplies short. Orders, Marshal!” In the tent, Dugu Feng bowed.
+
+Dugu Zhantian was crestfallen, left with no choice but to take it one step at a time.
+
+Dugu Lin proposed, “Should we… call for help?”
+
+“Who exactly? The imperial capital is under siege, with His Majesty’s situation unknown.” Dugu Zhantian sighed, “Who knew the day would come when I would be trapped in my homeland? Zhuge Changfeng, you’ve got me good.”
+
+The Four Tigers of Tianyu sighed.
+
+Dugu Lin spoke again, “Ask… fifth?”
+
+The other tigers lit up with hope…

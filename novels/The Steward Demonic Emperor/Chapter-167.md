@@ -1,0 +1,139 @@
+# Chapter 167, Invincible
+
+Zhuo Fan dominated the battlefield. He was a living paragon, taking dauntless steps towards the three. The murderous glint in his eyes was razor-sharp and got them shaking from the very core.
+
+Zhuo Fan was now the picture of indomitability, willing to slay everything that dared bar his path, including gods. Huangpu Qingyun had lost all will to even resist, standing there like a terrified chicken.
+
+The three never dreamed they’d see the day when they would run into such a dreadful foe.
+
+For three great experts, joint together too, sinking so low was an irony in and of itself.
+
+Sweating bullets, Vicious Pill King watched Zhuo Fan with nothing but fear. He very much knew of his foe’s weakness, needing but little time to turn all of this around, yet, he couldn’t stop the sense of powerlessness boring deep in his heart.
+
+This was power. He knew how to counter, but lacked the means to do so. The power gap was a bottomless pit.
+
+Vicious Pill King wrecked his mind about and suddenly his eyes flashed with resolve. He took out a bottle toward the other two, “Second young master, both of you take a pill.”
+
+He proceeded to give each of them one.
+
+Huangpu Qingyun and 5th elder stared at it in shock. Zhuo Fan’s brow also shook. He was more than familiar with it. In fact, it was the same pill he used, Bursting Pill.
+
+Eyes shuddering, Huangpu Qingyun’s heavy gaze landed on Vicious Pill King, “Elder Yan, this is indeed the only way. Even if we need someone to self-destruct to kill him.”
+
+Huangpu Qingyun squinted at 5th elder, “5th elder, I entrust this task to you. Have no worry, I will pay your valley a personal visit and present my utmost gratitude to Valley Lord, in honor of your selfless sacrifice. Regent Estate and Hell Valley will forevermore be allies!”
+
+[When the time to blow is at hand, why the hell aren’t you doing it?]
+
+th elder was about to rain curses, but Huangpu Qingyun’s dead set eyes cut him deep.
+
+[Regent Estate is a double-crossing two-timing pack of pricks. I can bet my life on it that Huangpu Qingyun won’t ever take Hell Valley as his ally. Even if he does, what freaking good will that honor do me?]
+
+th elder wouldn’t stick his head out even for Hell Valley.
+
+Huangpu Qingyun saw 5th elder still wavering and stared him down while belittling him, “This brat is Hell Valley’s problem to begin with. It’s your duty to finish him!”
+
+th elder’s face sank, itching to tear Huangpu Qingyun a new one.
+
+[Hell Valley has a score to settle with this demon, but aren’t you also aiming to kill him? And now that you find yourself lacking, you wish to throw me to the wolves?]
+
+Zhuo Fan shook his head and snickered.
+
+When life and death hung in the balance, almost everyone would cling to their only vain chance at life. Why would he sacrifice himself for the sake of others? Everyone looked on with respect and deference towards Regent Estate but none would ever wash their necks and spill blood for them.
+
+Who was that big of a fool anyway?
+
+“He-he-he, no need to shift the blame, you’ll both be dropping dead soon enough.” Grinning, Zhuo Fan’s fist ebbed with black energy.
+
+Huangpu Qingyun and 5th elders shuddered and stepped back in horror.
+
+Vicious Pill King shook his head and shouted, “Second young master, 5th elder, this pill isn’t meant to kill you. It is to boost your power like it did to the brat.”
+
+“What did you say?” The two shouted in unison, watching him flabbergast.
+
+Sighing inside, Vicious Pill King showed a trace of disappointment. These two were great in the seven houses, but they couldn’t hold a candle to a kid’s valor.
+
+His face hard, he spoke, “You are body cultivators, while he is a freak of nature, you are titans. If he could take five, how could you not even handle one? And since death is certain, why not go for broke? Isn’t it better to die on your terms then end up lambs to the slaughter like my weak self?”
+
+The two trembled and gathered up their courage as they looked at the pill in their hands. Then they swallowed it.
+
+Instantly, a gale blew and their Yuan Qi spiked. Overpowering Yuan Qi coursed through their veins, eating at their flesh. The pain was excruciating and elicited a roar from them both.
+
+The Yuan Qi imbued roar scattered even the Rumbling Blood Bats. While the people around covered their ears in hope of dampening the splitting headache.
+
+But this power couldn’t be denied, tearing at their ears and making them all bleed.
+
+Zhuo Fan had to take a few steps back from the raw display of power. Vicious Pill King was pushed back more than ten feet as well, but his breath was as uneven as before.
+
+With how Huangpu Qingyun and 5th elder were Profound Heaven experts to begin with, a ten times increase in power far outstripped the norm.
+
+The increase finally stopped and the two felt the surging Yuan Qi within their bodies. The power was intoxicating, evident from their excited faces.
+
+They could never believe this was their power.
+
+Now looking at Zhuo Fan, they shed all fears and bore down on him with killing intent.
+
+“Ha-ha-ha, this outcome is only logical. Taking a Bursting Pill is nothing when you’re a Profound Heaven Stage cultivator.” Vicious Pill King laughed in glee. This was his desperate attempt at turning things around, yet never once did he believe it would work.
+
+Long Jiu’s group felt the two’s raw power, far exceeding Zhuo Fan’s and were filled with concern. Zhuo Fan’s advantage was stripped and, even worse, his time was running out.
+
+As time passed, the two may not be able to defeat him, but his Yuan Qi would run dry and all that awaited him was death.
+
+Zhuo Fan couldn’t be more clearer on this. In fact, this was his main worry.
+
+Tightening his fists, with a burst of power, Zhuo Fan’s wings flickered and stared down the three of them, “We all know I don’t have time to waste. So I’ll just snatch victory with one blow.”
+
+“Humph, couldn’t agree more. I will take your head myself.”
+
+With great power came a great boost in ego to Huangpu Qingyun, releasing all that he was worth. Following dragons roars, six golden dragons swirled around him, the same as when he first attacked Zhuo Fan.
+
+But soon, a seventh dragon was added.
+
+“Imperial Tyrant Body Art, 7th stage!” Not only Vicious Pill King but even Long Jiu’s group gasped.
+
+The Imperial Tyrant Body Art was a marvel among body cultivation methods. Each stage would transform the user body, toughening and strengthening it in all aspects. With him advancing in such a dire moment, Huangpu Qingyun’s power must’ve grown by no less than ten times.
+
+In a blink, the people turned to Zhuo Fan with worry.
+
+Huangpu Qingyun had now become the same level of freak as Zhuo Fan.
+
+“He-he-he, you little shit, feast your eyes on Regent Estate’s Imperial Tyrant Body Art’s true power.”
+
+Huangpu Qingyun roared and charged. The seven golden dragons swirled around and made all defense moot.
+
+Zhuo Fan’s squinted fearlessly. He charged as well, although his display was much weaker.
+
+At the moment of impact, Zhuo Fan revealed his trademark smirk, “Kid, when it comes to martial arts, your wretched Regent Estate has nothing on me!”
+
+Zhuo Fan roared, “Wraith Style’s first move, Soaring Demonic Dragon!”
+
+Roar!
+
+With a sky shaking roar, Zhuo Fan was enveloped in the image of a black dragon as he clashed with Huangpu Qingyun.
+
+The seven golden dragons and the black dragon collided, unleashing a shockwave of epic proportion. The witnesses had to cough blood while the weaker ones were knocked out cold.
+
+Even Vicious Pill King was hurled three hundred meters into the air.
+
+He never would’ve guessed Zhuo Fan was hiding so many outstanding abilities. It was no less than Regent Estate’s Imperial Tyrant Body Art, if not stronger.
+
+When things finally settled, people relaxed. They turned to see smoke billowing and watched dumbstruck.
+
+Zhuo Fan and Huangpu Qingyun changed positions, but Zhuo Fan was as mighty as ever, with no decrease in his aura, just like a god of war. His eyes flashed with boundless valor.
+
+As for Huangpu Qingyun, he was pale and blood pooled at his feet. Looking down he saw half of his body in pieces. His innards had long turned to dust.
+
+“H-how can it be... so strong...”
+
+Huangpu Qingyun’s eyes bulged out of his sockets as he peered into the hole in his body. Then, his eyes went dead, and collapsed in his own blood. His death was the same as any of Zhuo Fan’s victims, filled with endless remorse.
+
+Sss~
+
+Gasping, the people stared at Zhuo Fan with dread. Huangpu Qingyun, under the Bursting Pill, at the peak of his power, was killed in one blow.
+
+Vicious Pill King as well as Long Jiu watched, astonished at Zhuo Fan’s new degree of power, making them reassess this youth’s level.
+
+They thought that in Huangpu Qingyun’s newfound power against Zhuo Fan, a tie was already an extravagant wish. But it went way beyond that, getting killed with only a single blow.
+
+Xie Tianyang gasped and lamented, “Now I really need to go practice my sword with big brother...”
+
+For this week, we will be posting 5 chapters a week cause we reached the goal. Well, if next week is below the goal, we will revert back to 4.

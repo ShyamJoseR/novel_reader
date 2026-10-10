@@ -1,0 +1,119 @@
+@tailwind base;
+@tailwind components;
+@tailwind utilities;
+
+:root {
+  --reader-bg: #0f172a;
+  --reader-text: #e2e8f0;
+  --reader-surface: #1e293b;
+  --reader-border: #334155;
+  --reader-muted: #94a3b8;
+  --reader-accent: #38bdf8;
+  --reader-highlight: rgba(56, 189, 248, 0.18);
+  --reader-highlight-border: #38bdf8;
+}
+
+/* Theme variations */
+body.theme-dark, .theme-dark {
+  --reader-bg: #0f172a;
+  --reader-text: #e2e8f0;
+  --reader-surface: #1e293b;
+  --reader-border: #334155;
+  --reader-muted: #94a3b8;
+  --reader-accent: #38bdf8;
+  --reader-highlight: rgba(56, 189, 248, 0.18);
+  --reader-highlight-border: #38bdf8;
+}
+
+body.theme-oled, .theme-oled {
+  --reader-bg: #000000;
+  --reader-text: #e4e4e7;
+  --reader-surface: #121214;
+  --reader-border: #27272a;
+  --reader-muted: #71717a;
+  --reader-accent: #38bdf8;
+  --reader-highlight: rgba(56, 189, 248, 0.22);
+  --reader-highlight-border: #38bdf8;
+}
+
+body.theme-light, .theme-light {
+  --reader-bg: #f8fafc;
+  --reader-text: #1e293b;
+  --reader-surface: #ffffff;
+  --reader-border: #e2e8f0;
+  --reader-muted: #64748b;
+  --reader-accent: #0284c7;
+  --reader-highlight: rgba(2, 132, 199, 0.12);
+  --reader-highlight-border: #0284c7;
+}
+
+body.theme-sepia, .theme-sepia {
+  --reader-bg: #fbf0d9;
+  --reader-text: #3d2b1f;
+  --reader-surface: #efe1c3;
+  --reader-border: #dec69f;
+  --reader-muted: #7a6350;
+  --reader-accent: #a05a2c;
+  --reader-highlight: rgba(160, 90, 44, 0.15);
+  --reader-highlight-border: #a05a2c;
+}
+
+body.theme-forest, .theme-forest {
+  --reader-bg: #0a1612;
+  --reader-text: #d1e7dd;
+  --reader-surface: #122821;
+  --reader-border: #1e3f34;
+  --reader-muted: #75a393;
+  --reader-accent: #10b981;
+  --reader-highlight: rgba(16, 185, 129, 0.18);
+  --reader-highlight-border: #10b981;
+}
+
+body.theme-latte, .theme-latte {
+  --reader-bg: #1c1512;
+  --reader-text: #ebdcd2;
+  --reader-surface: #2b211d;
+  --reader-border: #42332c;
+  --reader-muted: #9e897e;
+  --reader-accent: #d97706;
+  --reader-highlight: rgba(217, 119, 6, 0.18);
+  --reader-highlight-border: #d97706;
+}
+
+/* TTS Active Speaking Paragraph Highlight */
+.tts-speaking-paragraph {
+  background-color: var(--reader-highlight) !important;
+  border-left: 4px solid var(--reader-highlight-border) !important;
+  padding-left: 0.75rem !important;
+  border-radius: 0 0.375rem 0.375rem 0;
+  transition: all 0.25s ease-in-out;
+}
+
+/* Safe area support for mobile devices with notches */
+.safe-top {
+  padding-top: max(env(safe-area-inset-top), 0.75rem);
+}
+.safe-bottom {
+  padding-bottom: max(env(safe-area-inset-bottom), 0.75rem);
+}
+
+/* Custom scrollbar */
+::-webkit-scrollbar {
+  width: 6px;
+  height: 6px;
+}
+::-webkit-scrollbar-track {
+  background: transparent;
+}
+::-webkit-scrollbar-thumb {
+  background: rgba(148, 163, 184, 0.25);
+  border-radius: 9999px;
+}
+::-webkit-scrollbar-thumb:hover {
+  background: rgba(148, 163, 184, 0.45);
+}
+
+/* Smooth transitions */
+* {
+  -webkit-tap-highlight-color: transparent;
+}

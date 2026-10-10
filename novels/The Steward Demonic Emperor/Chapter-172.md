@@ -1,0 +1,159 @@
+# Chapter 172, Forceful Invitation
+
+“He is indeed an unheard of genius. I toiled for years over the pill recipe, but this kid up and understood it. I am completely in awe...”
+
+Tao Danniang laughed, sighed, then sank into depression. Zhuo Fan’s godly alchemy skill left her feeling inferior in her meager achievements.
+
+It was a far greater blow than Vicious Pill King could ever give her.
+
+After all, Vicious Pill King was the best in Tianyu and yet, she could still follow his tracks. While Zhuo Fan, he had risen to unseen heights; to the point she couldn’t even catch a shadow.
+
+Chu Qingcheng and the rest were over the moon, “Is that true?”
+
+“Of course. With the 17 pills the kid gave us, it is enough to get Drifting Flowers Edifice out of this crisis!” Tao Danniang laughed.
+
+Chu Qingcheng blinked, still finding it hard to believe this was real, “Aunt Tao, you mean to say he unraveled the mystery of that antidote? That pill recipe is real?”
+
+“Yes, it is undoubtedly real. Vicious Pill King may have denied it, but to make the antidote to Rainbow Cloud Palm, one had to at least have a recipe. Or you wouldn’t know where to even begin.”
+
+Tao Danniang sighed again, “But that kid is amazing, not only understanding the pill recipe but also following it in refining. The pill recipe was just a 7th grade, yet he made perfect 8th-grade pills. With this, even Grandmother’s recovery is assured.”
+
+“What, Grandmother?” Long Jiu’s group cried, “She’s still alive?”
+
+With a vague smile, Tao Danniang shook her head, “Just a breath away from death. But she will soon be back!”
+
+Everyone felt uplifted by the news.
+
+Zhuo Fan’s act was of huge consequence. Drifting Flowers Edifice’s Grandmother was the Lady of Steel. Furthermore, he not only wrested Drifting Flowers Edifice out of Pill King Hall’s control, he even saved Grandmother.
+
+From now on, Drifting Flowers Edifice’s only way was up. Regent Estate would not find it so easy to handle this house as before!
+
+“He is the savior of Drifting Flowers Edifice!” Long Jiu sighed, his admiration for Zhuo Fan going up a notch. [To think this was his plan all along.]
+
+How else could Drifting Flowers Edifice resist their wretched ally, Regent Estate? Drifting Flowers Edifice will soon return to being a national power.
+
+If Long Jiu understood this, then so did Chu Qingcheng and the others.
+
+Sharing a look, Chu Qingcheng and the others had a newfound respect for Zhuo Fan. Even Peony Overseer, who endlessly cursed at Zhuo Fan, felt a little ashamed.
+
+Regardless of what was said, regardless of how focused Zhuo Fan was on his own directive, one thing was certain. He was the herald of Drifting Flowers Edifice’s new dawn.
+
+This alone made him Drifting Flowers Edifice’s greatest contributor!
+
+“It’s no longer him owing me, but me being indebted to him. Our bond still remains!” Chu Qingcheng smiled with a crafty look.
+
+They were eager to get back to Drifting Flowers Edifice, remove the poison from their sisters, and boost the morale of their troops.
+
+Out of everyone’s notice, when the moon fell from its peak, a winged figure watched them from a treetop. He sighed and vanished into the night...
+
+In another place, on the wide street, Yan Fu was shedding bitter tears going westward on a carriage. He was returning to Pill King Hall with the body of his master, Vicious Pill King.
+
+No one would have ever believed this trip to Drifting Flowers City would rob the grand Vicious Pill King of his life.
+
+Wiping his nose, Yan Fu recalled his master’s smile, his care for his disciple, and his grief only grew. His cloudy eyes once again began shedding tears of sorrow.
+
+“No, I cannot cry. I will have vindication!” Wiping his tears, Yan Fu’s eyes steeled, “Zhuo Fan, one day I will kill you and lay master’s soul to rest!”
+
+Hu~
+
+A sudden gale blew, followed by thunder. Yan Fu’s heart seized and turned to look back. He saw a man with wings of lightning charging for him.
+
+“Z-Z-Zhuo Fan!”
+
+In a blink, Yan Fu’s towering thirst for revenge was wiped clean. The panic was so palpable from his face that he was on the verge of tears.
+
+[Dude, I was saying one day! Not now! Why are you here? I’m not ready! Could you at least give me at least seven or eight decades?]
+
+But why would ever Zhuo Fan care? He always followed through with what he put his mind to.
+
+Whoosh~
+
+Zhuo Fan’s arrival was swift like lightning.
+
+With lack of a better choice, Yan Fu jumped off the carriage. He then hopped on his feet with a serious face.
+
+[Since I can’t avoid him, come! I am not afraid of you, even if I die!]
+
+But Zhuo Fan couldn’t care less of him.
+
+Boom!
+
+With a crack of thunder, Zhuo Fan went through the carriage, which blew into smoldering ash. As Zhuo Fan’s figure was made clear from the wreckage, he was holding someone.
+
+Yan Fu cursed in panic, “Zhuo Fan, you bastard! What do you think you’re doing to my master?”
+
+“Came to whip a corpse, ha-ha-ha...”
+
+The air echoed with Zhuo Fan’s mockery. Yan Fu shook but all he could do was cry, “Master, forgive me. Disciple is useless. I can’t even defend your body. I am unfilial. I cannot stop that demon from humiliating you...”
+
+Zhuo Fan looked back at him with a smile. Although the kid was a cunning twerp, not great in the least, he was loyal though.
+
+After flying for half an hour, Zhuo Fan landed in a groove and threw Vicious Pill King’s corpse on the ground.
+
+Watching the aged and peaceful man, Zhuo Fan put a pill in Vicious Pill King’s mouth then brought out his gourd. Opening it, a blood-red cute worm wiggled from within.
+
+“He-he-he, finally going to put you to good use!”
+
+Zhuo Fan snickered and placed the Bloodworm in Vicious Pill King’s mouth. He put away the gourd and started going through gestures as he shouted, “Ha!”
+
+In a blink, a visible ripple came from Vicious Pill King.
+
+Shuddering, Vicious Pill King started moving and got up. His mind in a panic, his hazy eyes looked around, “Where... am I?”
+
+“Ha-ha-ha, Elder Yan, we can finally have a nice and quiet chat.” Zhuo Fan made a point to give the kindest and most heartwarming smile he could.
+
+But all he managed to do was send Yan Song into a shivering fit. He staggered backward, to get some to a safe distance from him.
+
+Such a reaction was as instinctive as when a bunny met face to face with a tiger.
+
+If only the others were here to see this, they’d be slackjawed. The grand and magnificent Vicious Pill King, the best alchemist in the empire, who treaded the continent with such haughtiness, was actually a scaredy-cat!
+
+But any who had dealings with Zhuo Fan would find this totally understandable. The fear that was Demon Archon, Zhuo Fan, was not something mortals could fathom.
+
+“D-din’t you just killed me? How on...” Staring long at Zhuo Fan, Vicious Pill King recalled what happened four days ago. But to him, it was as if it was just a moment ago.
+
+Chuckling, Zhuo Fan said, “My actions are always ethical. Those that I want to kill, they stay dead. As for the others, they won’t die if I’m around. I made sure the sound attack was weakened before it hit you, dislodging your soul from your body for a while. It’s akin to feigning death. A mere Soul Restoring Pill would wake you up easily.”
+
+Roaming his eyes in thought, Vicious Pill King found it to be true, but still asked with no little suspicion, “Why did you let me live instead of killing me?”
+
+“Ha-ha-ha, didn’t I tell you? I respect you as being the first Grandmaster of your generation. It’d be such a pity to kill you and I find that using you is a much better alternative!” Zhuo Fan’s eyes shined and his grin widened.
+
+Scared out of his wits, Vicious Pill King now knew Zhuo Fan’s intention and mocked him, “Ha-ha-ha, you think you can recruit me just ’cause you want to? I am the best alchemist in Pill King Hall, so why would I fall from grace and become your errand boy?”
+
+“Nice, prideful. I just love your attitude. At least this way, you’ll get to make plenty of pills!” Zhuo Fan condescended, adding a thumbs up for good measure, “Sigh, guess I can’t force you!”
+
+Startled, Vicious Pill King was puzzled. [I refused yet he’s not one bit angry? He gave up too easily! This is not how the usual demon acts.]
+
+“Zhuo Fan, you won’t try to persuade me?”
+
+“What would be the point? I said all I had to say already. It’s fine as long as you understand!” Zhuo Fan smiled like a good chap.
+
+But then his hand made a sign.
+
+In a blink, a bloody mark appeared on Vicious Pill King’s forehead, causing his blood to boil. He felt his head exploding, that it was slowly cracking itself open.
+
+Vicious Pill King held his head and rolled on the ground from the torture. Blood seeped from his mouth, ears, nose, and eyes.
+
+“Zhuo Fan, what the hell did you do to me?” Vicious Pill King’s eyes bulged out, ready to explode.
+
+In all his years, he had never endured such excruciating pain. Even the poisons he made paled in comparison to the torture this suffering brought about.
+
+He just couldn’t figure out what Zhuo Fan had done to him.
+
+Giggling, Zhuo Fan showed him a red worm, “Elder Yan, to be completely honest, I was afraid you might not be so inclined to go along with my request. So, I gave you this little pet while you were unconscious. It can make your blood to surge and expand, ending up with a bloody bang. “
+
+Horrified, Vicious Pill King didn’t think Zhuo Fan was capable of having such vile acts. He knew he had no escape and clung to his only hope as he yelled, “Zhuo Fan, you’re going back on your own words. Didn’t you say you won’t force me?”
+
+“Yeah, I won’t ever force you. It is wholly up to your own free will if you want to come with. But if you refuse, that takes us back to when we were enemies. It is only right that I rid the world of my enemies, no?” Zhuo Fan’s cold face stared him down.
+
+Vicious Pill King’s mouth fell and felt like crying.
+
+It was clear like ink on paper. Zhuo Fan wanted to force him into submission, but the prick had the gall to preach him of free will, even if it made perfect sense.
+
+“Then end me, spare me of this suffering!”
+
+“Tch, tch, tch, I can’t help you there. It’s my decision on how I destroy my enemies. In your long-lived life, sir, how many enemies have you seen teaching their killer how to kill them?” Zhuo Fan blinked with a wide and naive smile.
+
+Though it only helped to horrify Vicious Pill King further.
+
+[Demon Zhuo Fan earned his name. He is entirely insidious and cruel...]

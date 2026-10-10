@@ -1,0 +1,133 @@
+# Chapter 177, Sneak Attack
+
+“What?” Vicious Pill King watched Zhuo Fan baffled. Then, he recalled how in Drifting Flowers City Zhuo Fan’s soul reached the Radiant Stage and knew Discerning Field.
+
+And after so much time had passed, it would’ve been odd if he couldn’t get more used to it and detect movements in half a mile.
+
+Closing his eyes, Zhuo Fan said, “In a forest half a mile out, two people are hiding to the West. From their energy, they must be from Hell Valley. To the East, there are also two quick on their feet, probably Merry Woods. And finally the two in the North with heavy air about them. Cultivators of Imperial Tyrant Body Art are experts from Regent Estate. And all six of them are in the 5th layer of Profound Heaven Stage.”
+
+“Steward Zhuo is amazing to use Radiant Stage’s ability!” Vicious Pill King praised, “Now we can just avoid them and let them wait forever, ha-ha-ha...”
+
+Quirking an eyebrow, Zhuo Fan snickered, “And why should we? Since they are here, we might as well duke it out!”
+
+“Steward Zhuo, you can’t!”
+
+Vicious Pill King was flustered as he tried to explain, “They are clearly prepared this time. In the Drifting Flowers City, you fought the four of us, and, as much as it pains to admit, we underestimated you. Not to mention, we were all from different houses, with gaps in our cooperation. Now that the houses sent pairs, even if you take that pill again, it will only make them drag it out then end you at your weakest.”
+
+Raising an eyebrow, Zhuo Fan eyed him deeply. [I didn’t think the old man would be so caring so quickly.] He said, “I was alone then, but don’t I have you now?”
+
+“Me?”
+
+Vicious Pill King shook his head, “The common folk fears me for my Rainbow Cloud Palm. But with how many there are here, only one has to bear the brunt of my poison and I will be a goner. Later, he just has to go get the antidote from Pill King Hall. I’m sure you are clear on this from the moment you fought my disciple. “
+
+Indeed, he was posing as Song Yu at the time but being relentless was the bane of Pill King Hall’s poison. At worst, it was one life at the price of another.
+
+Moreover, the enemy was now working together. Even if they did get poisoned, Pill King Hall would offer the antidote and Vicious Pill King’s threat would plummet.
+
+“What if you can poison them all? Won’t their power drop?” Eyes flashing, a grin was plastered on Zhuo Fan.
+
+Vicious Pill King didn’t seem to get it, “How can I? They’re not stupid to sit still and take on my palm. And they’re all Profound Heaven experts. They may not be able to use Radiant Stage’s abilities, but they can at least discern any movements in a thousand-meter radius. The moment we approach, they’ll spot us and we’ll have no chance of retaliation.”
+
+(StarReader: author mistake perhaps? First half a mile now a kilometer?)
+
+(Silavin: Might not be. He got used to it but, he is still new. It might be that the ability is stronger.)
+
+“And if they can’t spot us?”
+
+Zhuo Fan watched Vicious Pill King with a playful smile. Vicious Pill King was baffled, then saw a red pill thrown his way.
+
+Vicious Pill King watched it even more perplexed.
+
+Zhuo Fan said, “This is an Energy Concealing Pill, a 1st-grade pill. For a full day, your energy won’t be released. Unless someone sees you, or a Radiant Stage expert actively searches for you, no one will notice.”
+
+Zhuo Fan took one.
+
+In a blink, his aura vanished. Vicious Pill King watched dumbstruck.
+
+“Since when did such a marvelous pill exist in this world? How come I never heard of it? And a 1st grade as well?” Vicious Pill King’s shock and disbelief were understandable.
+
+Zhuo Fan mocked, “It is an ancient pill recipe. How could you know of it? But that’s not important, I will tell you about it later since I recruited you to help me to make pills. The Energy Concealing Pill will be of great importance later. For now, stick close. We will talk again after we deal with these pesky flies!”
+
+Zhuo Fan resumed flight.
+
+Vicious Pill King swallowed it after a moment of shock then followed him excitedly.
+
+Putting aside how amazing the Luo clan was, just getting to study these ancient pills from Zhuo Fan was a reward in and of itself.
+
+[Following this kid was the best choice I ever made!]
+
+Vicious Pill King’s heart was dancing in joy, the same as when he made his first living pill...
+
+In a hidden part of the forest, two elders in white sat on two rocks with their eyes closed. Even so, they were always on guard, listening to every rustle, every gust of wind.
+
+Only when they were certain the gust wasn’t made by some expert, did they relax.
+
+“Third brother, will that kid really pass through here? We’ve been at this for days and there’s still no sign of him. Did he pass us already or took another route?” One elder muttered.
+
+The other elder still held his eyes closed and his position on the rock, “Mr. Leng is famed for his insight. He doesn’t make mistakes. He said that we will meet the killer of sixth brother here, today. It will soon be over, just be patient!”
+
+“But all this waiting is so boring...” The other elder sighed.
+
+Then, a black shadow moved closer, unperceived by the pair. When it got behind them, with a thunderous roar, two wings ran the two through.
+
+Zhuo Fan then came out of the shadow.
+
+Spatting blood, the two elders opened their eyes and strained their heads behind them, just to see Zhuo Fan looking down on them.
+
+“I was afraid you two would spot me so I used Elusive Shadow Art, but you guys always had your eyes closed. You can’t be serious even when laying an ambush! Sigh, Merry Woods is doomed to perish!”
+
+Under the shock of the two, Zhuo Fan twisted their necks. Then, black energy swallowed the bodies, leaving not but ash in its wake.
+
+The two were so dumbstruck before, still disbelieving to be caught off guard so thoroughly.
+
+Clapping, Zhuo Fan shrugged.
+
+He learned from his encounter with Lin Zitian that Merry Woods’s cultivation method boasted great speed. So he figured he’d rather deal with these two first and remove the trouble later.
+
+What he didn’t expect was for this pair to wait in ambush with eyes closed. [They were clearly begging for it!]
+
+[You mean to say killing four elders of the seven houses doesn’t warrant any contingencies?]
+
+[Well, they make it easier for me to do what I want, at least!]
+
+After devouring the two experts, he could feel the Yuan Qi inside him surging. Zhuo Fan turned to the West, at where Hell Valley’s elders lay in wait.
+
+[Humph, old enemies do meet often it seems!]
+
+Zhuo Fan snickered, turned into a shadow, and began haunting his way forward.
+
+The elders in the West weren’t like Merry Woods, waiting idly. Their aura was somber and watching over any sign of movement around them.
+
+They knew Zhuo Fan for who he was and never dropped their guard for a second.
+
+“Third elder, the kid is late and it’s making me nervous!” An elder watched around, ready to pounce. His hawk eyes scrutinized every inch.
+
+The other elder was just as vigilant, but through some strange coincidence, he always kept a hundred meters from his partner, “Fourth elder, the kid not only killed seventh elder but even crippled 5th elder. He is vicious to the core and hard to handle. We must not underestimate him for being in the Bone Tempering Stage. He will be here soon and we must work together and avoid ending like seventh elder and fifth elder!”
+
+“Relax, I consider this kid a veteran Profound Heaven expert!” The fourth elder nodded with a grave expression.
+
+A shadow was creeping in on him, listening to his words. Zhuo Fan raised an eyebrow and mocked them in his mind.
+
+[You don’t say. Your welcoming of your enemy is truly worthy of this Demonic Emperor. Although, how am I to ambush you when you’re so on edge?]
+
+Zhuo Fan started recalling the two wastes from Merry Woods. Those guys saved him a lot of trouble, but what about this pair?
+
+He would be hard-pressed to get rid of these two quickly, not to mention, they were higher than fifth elder in rank.
+
+Sighing, Zhuo Fan began to hesitate.
+
+Then, he heard a boom and a rainbow mist rose in the North. Everything this mist touched, be it plants, animals, and even rocks, decayed.
+
+The two elders looked in shock, “Rainbow Cloud Palm?”
+
+“Why is Pill King Hall here? I thought they weren’t included in this plan?” Third elder asked.
+
+Fourth elder paused then waved indifferently, “He-he-he, didn’t the kid kill their best alchemist? I heard that he stole his corpse later on. This is one shame they can’t take lying down. I suspect they came here willingly. Anyway, the more we are, the better the odds. “
+
+“But why are they using Rainbow Cloud Palm...” Third elder paused then came to a shocking conclusion.
+
+The other elder’s eyes shined and shouted, “They found the kid. We better hurry and help!”
+
+But before they could even take to the skies, they saw two people rushing towards them. The elders panicked, “Aren’t they Regent Estate’s elders? Why are they poisoned? Was it an accident?”
+
+In their moment of doubt, a shadow flitted behind them...

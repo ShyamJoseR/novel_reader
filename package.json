@@ -1,0 +1,13 @@
+{
+  "name": "novel-reader",
+  "version": "1.0.0",
+  "description": "Mobile-friendly novel reader with audio TTS and reading customization",
+  "scripts": {
+    "start": "node server/index.js",
+    "build": "npm --prefix client run build",
+    "test:api": "node server/test-api.js"
+  },
+  "keywords": ["novel", "reader", "tts", "webnovel", "audiobook"],
+  "author": "",
+  "license": "MIT"
+}

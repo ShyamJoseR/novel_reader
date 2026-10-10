@@ -1,0 +1,137 @@
+# Chapter 823: Rock Bottom
+
+Proofreader: Papatonks
+
+Bubbles of air floated above while Zhuo Fan sank. He found himself surrounded by them, all going towards the surface.
+
+His clothing was dissolving under his eyes, as if he was in some kind of vat of acid.
+
+[With the swamp being caustic now, I’ll be next if it keeps dragging me down.]
+
+Zhuo Fan finally turned serious, struggling to get out of this stuff.
+
+The swamp wasn’t just caustic, but extremely invasive.
+
+The minute he touched the swamp, it stuck to him like glue. To make matters worse, the sludge seeped into his skin and went through his meridians to seal his Yuan Qi.
+
+All his struggle was in vain, as he just flopped about and sunk further in.
+
+Sect Leader cackled smug, “Ha-ha-ha, damn brat, keep your schemes to yourself. There has never been anyone who managed to escape the swamp! So be good and let it take you to the bottom and push up daisies from hereafter.”
+
+The hostages saw Zhuo Fan struggling and panicked. All their cries were muffled by the covers and couldn’t reach him.
+
+“Do you really think some swamp can hold me?”
+
+Half already in the quagmire, Zhuo Fan snickered, “Sect Leader of the Beast Taming Sect, don’t lump me in with those fools that end up dead because of your plans. You are nothing!”
+
+A ripple echoed out as he finished.
+
+Sect Leader shook and looked tensely at Zhuo Fan.
+
+One thing was certain, what kind of normal Radiant Stage cultivator could surpass an Ethereal Stage expert?
+
+He was very wary of Zhuo Fan’s power, going as far as overestimate it than look down on it.
+
+No matter how confident he was in that swamp, he was still nervous if it could hold someone like Zhuo Fan.
+
+He stared at Zhuo Fan with a frown, ready to act if needed be. He would make sure to kick him and stop any attempt at escaping. The minute the freak got out, his sect was doomed.
+
+Sect Leader’s hands were sweaty.
+
+[Divine Eye of the Void’s 1st stage, Shift!]
+
+Zhuo Fan’s eyes shone golden as he snickered. The sludge blocked his Yuan Qi, but Divine Eye of the Void used the soul to work.
+
+He just had to swap places and he’d be a-ok.
+
+Hum~
+
+Space warped around Zhuo Fan, making Sect Leader even more tense, not knowing what he had planned, but ready to strike at a moment’s notice.
+
+Bam!
+
+And that was it. The ripple formed but popped in the end, without even taking Zhuo Fan with it.
+
+Zhuo Fan’s pride in Divine Eye of the Void was crushed.
+
+“This can’t be!”
+
+Zhuo Fan cried out in utter shock. Looking inside his mind, he saw the sludge seeping in there as well. Even the heaven dragon soul couldn’t shake that thing off no matter how it flayed around.
+
+His soul was sealed as well now.
+
+Zhuo Fan was stumped, looking at the pitch-black sludge around him with utter confusion, “What is this thing? There’s no way the mortal domain can have something this weird. Maybe…”
+
+Zhuo Fan recalled dragon ancestor’s words. World Wind Tunnel connected the Sacred Domain so maybe something slipped through from the Sacred Domain.
+
+Frowning, Zhuo Fan lamented.
+
+[What a blunder, and it’s all because the Beast Taming Sect is a lower-three sect. I never dreamed it possible for their secret domain to be so different from Ultimate Clarity Sect’s. Ultimate Clarity Sect’s realm was paradise for cultivators while he was now here sinking into hell.]
+
+Both of these spaces were all at the level of Sacred Domain!
+
+That meant that even a Saint would be having a hard time with this sludge.
+
+Zhuo Fan lamented and shook his head while the earth took him.
+
+Sect Leader laughed at this surprise, “Ha-ha-ha, rotten punk, you’re nothing but a show off. Where’s your cockiness now? You almost scared me for a second there. I really thought you could get away, but you’re just running your mouth. You’re still just a mortal in the end. How can you escape my sect’s Abyssal Swamp?”
+
+Zhuo Fan fell silent as he sank further in, until his head was covered as well.
+
+All that remained were bubbles popping, the only sign Zhuo Fan was there, beneath the surface…
+
+Lian’er shouted all this time, even as no sound reached him. The three had fought against their bonds with all their might, to no avail.
+
+The bubbles thinned and soon stopped.
+
+“The brat is a goner now, ha-ha-ha…” Sect Leader saw the swamp stilled and grinned, “Everyone, I killed that punk. Come back.”
+
+Whoosh~
+
+People came from all directions, the elders of Beast Taming Sect.
+
+Seeing their calamity, Zhuo Fan, had been swallowed by the mire, they were overjoyed and flattered Sect Leader.
+
+“Sect Leader, is the greatest! His plans are flawless, ha-ha-ha…”
+
+“Sect Leader, since we killed Demon Scheming Sect’s greatest traitor, shouldn’t it pay for our efforts?”
+
+“Yeah, yeah, Sect Leader. For dealing with Demon Scheming Sect’s problems, we should get a thousand more sacred stones. We’ve suffered too many losses. Of the two hundred Ethereal Stage experts, we only have half left.”
+
+Everyone reacted, “Yes, that’s right…”
+
+“Yes, that’s how it should be. My sect’s losses will be compensated by Demon Scheming Sect!”
+
+Sect Leader nodded, “But first, full moon is almost upon us in three days. It’s the time for our sect’s monthly Crescent Pool baptism. You all know that the day when the moon is brightest, this will turn into the clearest pond with thick spiritual energy. Training inside will make it far more effective than outside. We can’t miss it once. That is why the talks with Demon Scheming Sect shall be put on hold for three days.”
+
+They all cupped their hands, “Yes, Sect Leader!”
+
+“Sect Leader, what about those three brats?”
+
+One elder pointed at the pillars.
+
+Sect Leader eyed the mournful trio and snickered, “Take them for now and look into them. We’ll deal with them afterwards.”
+
+“Yes, Sect Leader!” The elder bowed and left with the hostages.
+
+Everyone left, leaving Sect Leader all alone. he looked at the still quagmire one last time, with a smile, “Zhuo Fan, no matter how tough you are, even after escaping Universal Righteous Sect, you actually fell here, in the Beast Taming Sect, ha-ha-ha…”
+
+Sect Leader was gone as well.
+
+He left just as the still quagmire began to bubble up, stronger and stronger…
+
+[Demon Transformation Art!]
+
+Deep below, at the very bottom, surrounded as he was by the thick sludge, Zhuo Fan opened his eyes. Black energy came out of his body and had the sludge spun around like a tornado as he sucked it in.
+
+Inside his mind, even as black from the sludge as it was, began to act as well.
+
+The heaven dragon soul shook and turned into the Heaven Devouring Demonic Dragon King. With a roar, it gathered all the sludge around it and made it vanish in the black energy.
+
+Zhuo Fan and the dragon soul worked together to suck the swamp dry, acting like a bottomless hole.
+
+Demon Transformation Art could convert anything in the world.
+
+[Let’s see which is stronger, the swamp’s corrosiveness or this Demon Emperor’s demonic art, humph…]
+
+Grinning, Zhuo Fan’s eyes flashed…

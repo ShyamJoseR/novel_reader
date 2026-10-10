@@ -1,0 +1,121 @@
+# Chapter 679: Superior Three Sects Stage
+
+Proofreader: Papatonks
+
+Hum~
+
+Demon Scheming Sect and Sword God Sect’s teams had returned from the battlefield. This had been a rare occurrence in the eyes of the public, one which filled them with admiration. The righteous and demonic sides had a friendly spar in every sense of the word.
+
+This showed that no matter the differences between demonic and righteous, there would always be something that connected them. At the very least, the disciples’ extreme devotion and stalwart mentality demonstrated a shared goal between one another. They all wanted to reach the same pointb on the cultivation path.
+
+The judge eyed both teams and smiled as he announced, “In this middle three sects challenge stage, Demon Scheming Sect vs. Sword God Sect, the Demon Scheming Sect’s nine-membered team had eight wounded and only one standing. Sword God Sect’s ten-membered team had all of its disciples defeated. In conclusion, the winner of this challenge is Demon Scheming Sect!”
+
+Clap~
+
+Sharp and loud clapping echoed throughout the arena as the audience expressed their approval and admiration toward Demon Scheming Sect. This fight was fought with honor by both sides. Demon Scheming Sect’s win had been frank and conclusive. How this heroic battle was fought brought these people a sense of awe. The fact they were sects of different paths yet had been so cordial with each other only made this feeling stronger.
+
+Zhuo Fan, mainly, was the target of most applauses.
+
+Since Demon Scheming Sect managed to score this win based solely on one man, he had done the impossible in turning the tables when he was at his most dangerous moment.
+
+It all came to a close with letting off Sword God Sect’s team and not humiliating them further, showing his respect for his adversaries. People had begun to understand that this unprecedented expert of the Demon Scheming Sect was not just a killer bent on slaughter.
+
+“Do you see? Everyone is watching him. Even against an adversary, he shows respect when earned. That is his principle. After so many years, he hasn’t changed, just like he was in the Hundred Pill Meeting…” Chu Qingcheng sported a wide smile, looking at Zhuo Fan with a soft gaze.
+
+The girls were stunned, also finding Zhuo Fan dazzling.
+
+The judge motioned for the thunderous applause to stop, and silence reigned again. He chuckled, “Ha-ha-ha, this fight has been most brief, leaving us with ample time for me to declare this. Let the superior three sects stage begin! I invite to the arena the three great sects’ teams!”
+
+Everyone was taken aback. Then they were excited anew. The strongest three sects were about to battle.
+
+It would be completely different from the middle three sects and lower three sects’ stages. This was a fight between western lands’ strongest disciples, which enraptured the audience.
+
+“We best go on the arena, junior brother.” Wu Qingqiu smiled and said. Ye Lin looked bored out of his mind but still squeezed a smile, “When we finish off the other two sects, I can finally face off with my fated adversary. I can’t wait, ha-ha-ha…”
+
+Yan Mo’s face twitched, “Ye Lin, I don’t know how strong you are, but don’t think for a second Hellion Flame will fall with a simple push.”
+
+“I’m not going to kill you. Just get you out of the way to give us two some room to fight!” Ye Lin sneered, but then he looked in Zhuo Fan’s direction with bright eyes, “By the way, we’re about to face off, yet we have yet to meet properly. I think I’ll drop by to say hello, ha-ha-ha…”
+
+Ye Lin was gone the next second.
+
+Yan Mo was shocked by his speed. It was so fast that not even he noticed when he was gone.
+
+Turning a baffling look at Wu Qingqiu, the guy only shrugged.
+
+As if to say– [Now you get how deadly junior brother is?]
+
+Meanwhile, as the superior three sects’ teams got into the arena, Zhuo Fan and Sword God Sect’s disciples shuffled out. Placing Qi Changlong and the others back to Demon Scheming Sect’s side, Wen Tao’s team gave one last look to Zhuo Fan before leaving.
+
+A look that was filled with a burning spirit for battle. That intense gaze left Zhuo Fan speechless but also expectant.
+
+Maybe next time they will show him some interesting developments.
+
+[Then again, finding such a group of martial fanatics driven so hard on his path towards Dao is a fortune. The days with no adversary can be quite lonely…]
+
+Then Zhuo Fan’s heart shook, staring at Ultimate Clarity Sect walking into the arena. He was looking for the youth that gave him the jitters, yet he just couldn’t seem to find him.
+
+“Zhuo Fan, you’ve fought marvelously!”
+
+Fiend Yang slapped Zhuo Fan’s shoulder with a laugh, “I was so scared back then you’d be too caught up in it and killed Sword God Sect’s disciples. Thank god you saw reason. You know we need time to develop; this is not the time to get on the middle three sects’ bad side. Having already messed with Heaven Trailing Sect, if we had them hating us as well, then we’d be pinned in the middle.”
+
+“But now it’s fine, you rotten brat, that you went easy. And you even earned a huge favor from Sword God Sect in the process. It might even lead to us becoming allies. Ha-ha-ha, your twisted and devious reasoning is becoming more convoluted by the day. You’re not Steward Zhuo for nothing. You’re of deep machination!” Fiend Yang praised while slapping his shoulder.
+
+Glancing over, Zhuo Fan merely chuckled and sighed.
+
+They totally misunderstood him. He didn’t put much thought into it. Not to mention he’d be saying goodbye to Demon Scheming Sect after he was done with Double Dragon Gathering. So why would he waste his time thinking about the sect’s future?
+
+He only spared the ten disciples because he found them much alike.
+
+He could see in them his younger self.
+
+Sure he had outstanding success and ease in this life, as well as the endless arts and manuals, along with Nine Serenities Secret Records and his skills in arrays and alchemy. But they were all due to his past life as a Demonic Emperor.
+
+Who in this world had not been through struggles and pain? His past self was like Xie Tianshang, growing one step at a time against adversity. Fighting in challenges he knew he couldn’t win, skirting death more times than he could count, that was how he finally grabbed the title of the head of the Eight Emperors.
+
+Seeing these kids behaving just like him struck a chord in his heart, and he couldn’t help but go easy on them.
+
+[It’s like how a veteran demonic cultivator, being cruel to the extreme, can harbor a trace of empathy.]
+
+However, thinking of Fiend Yang’s words, this was for the best in the end; the more friends, the more paths. Even if he left the sect and did not care for it, there might come a day he would be in trouble and need help. What was the harm in growing this fast friendship anyway?
+
+Zhuo Fan’s eyes lit up, and he recalled that there was still one promise he had yet to keep. So he looked around the arena in haste.
+
+There, he found Demon Soul Sect’s team.
+
+“Venerable, I’m now going to get the sect an ally. It will help greatly when the Heaven Trailing Sect and Mystical Heaven Sect come for us.” Zhuo Fan shouted, and his eyes shone a cunning light.
+
+Fiend Yang raised an eyebrow, following his gaze, then he lit up as well, “Good, hurry along now. Your actions are always filled with responsibility, ha-ha-ha…”
+
+Zhuo Fan also chuckled, vanishing the next second and appearing before the Han brothers.
+
+“Second young master Han, third young master Han, may I ask where your brother is?” Zhuo Fan cupped his hands, his face filled with worry.
+
+Startled, the two jumped back at his sudden appearance. But seeing it was just Zhuo Fan, they returned the gesture.
+
+Second young master Han spoke, “Thank you for your concern, brother Zhuo, elder brother is still unconscious, but there are no major concerns.”
+
+“That’s good.”
+
+Zhuo Fan nodded and revealed a vial for them, “This is a 10th-grade pill, Spirit Inception Pill. It can restore his soul. Take it and give it to your brother. He’ll be as good as new. “
+
+“Uhm…”
+
+The two’s hearts jumped, looking at the vial in curiosity. A 10th-grade pill was practically a marvel with how rare they saw it.
+
+However, for some odd reason, the two’s behavior was strange. They wanted it but were reluctant, thus hesitating for a long time.
+
+Zhuo Fan frowned, and a strong arm slapped his shoulder just as he was about to inquire. Loud laughter followed it, “Brother Zhuo, don’t blame them for not taking your pill because they already took my 11th-grade, Nascent Soul Pill. I told them that men with integrity aren’t greedy. Since their brother is fine, there’s no need for taking another person’s pill…”
+
+Zhuo Fan’s heart jumped in shock. His face filled with horror.
+
+[When did he get behind me? Why didn’t I sense him?]
+
+This person’s odd aura was making him feel unspeakable danger.
+
+Turning his head, Zhuo Fan stared at a familiar pair of eyes. He saw in them a strange flame flashing.
+
+As if in reply, Zhuo Fan’s eyes also flashed in azure.
+
+“Brother Zhuo, we finally meet. Ha-ha-ha, hello, I am Ultimate Clarity Sect’s Ye Lin. We will soon be fighting at last. I am most excited for a battle between sacred beast inheritors…”
+
+Ye Lin sported a creepy smile, his eyes taunting Zhuo Fan…

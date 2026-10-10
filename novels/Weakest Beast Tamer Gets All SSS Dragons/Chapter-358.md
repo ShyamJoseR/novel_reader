@@ -1,0 +1,79 @@
+# Chapter 358 - 358 - Taming Aftermath
+
+Reed and Fern had lived long enough to understand the realities of their world.
+
+Death wasn't something abstract or distant; it was part of the life cycle that everyone would eventually face. Every citizen served their military duty, everyone killed when the kingdom required it. It wasn't a question of morality, but of survival.
+
+But seeing their barely eleven-year-old son standing over a corpse, blood dripping from his claws... that was different.
+
+The metallic smell filled Ren's nostrils. The sticky texture on his hands, the warmth still emanating from the body, the way the man's eyes stared without seeing... everything was too real, too immediate.
+
+His stomach revolted violently.
+
+When he had killed Harold with the light ray, it had been distant, almost impersonal. A flash of energy and then nothing. This... this was intimate, visceral, undeniable. He could still feel the resistance of flesh giving way beneath his claws, the subtle vibration as bone cracked.
+
+Ren fell to his knees and vomited, his stomach contracting forcefully as he expelled everything he had eaten that day.
+
+But he didn't cry. He wiped his mouth with the back of his hand, smearing himself further with the patroller's blood, and stood up. His legs trembled, but his posture was upright. The mushrooms in his hair flickered erratically, betraying the turmoil within.
+
+"I had to do it," he said, more to himself than to his parents. "They were going to... he was going to..."
+
+Reed observed the vomit on the ground, then his son desperately trying to maintain composure. He sighed deeply, the sound laden with the weight of a father seeing his child grow too fast. The lines on his face seemed to deepen, age showing through worry.
+
+"You're still our boy," Reed said softly, his voice breaking slightly.
+
+Fern nodded, tears running freely down her cheeks. "No matter what you've experienced, the adult things you've had to do... you'll always be our child."
+
+The words carried years of love and protection that couldn't shield his son from this moment.
+
+Reed stepped forward, ignoring the pain of his own wounds. Each movement sent fresh agony through his lacerated back, but parental love overrode physical suffering.
+
+"I'm grateful you could protect your mother when I couldn't," his voice was firm but gentle. "I would have never wished to see you lose your innocence so soon. Not for us."
+
+It was then that Ren finally broke.
+
+He looked at the patroller's body, blood forming a dark pool on the earth. His hands, his own hands, had done that.
+
+The tears began to fall, first slow, then in uncontrollable torrents. His body shook as wrenching sobs escaped his throat.
+
+Fern ran to him, ignoring the pain and the smell of death, wrapping her son in a fierce embrace. She didn't care that he was covered in blood, that he had just killed a man. He was her son, her baby, and he was suffering.
+
+Her tears mingled with his as she held him close. "It's okay, my love," she whispered against his hair, feeling the small mushrooms pulse against her cheek. They glowed dimly, responding to their host's emotional state. "It's okay to cry. It's okay to feel bad."
+
+Reed joined the embrace, his wounded but strong arms surrounding his family. "You did what you had to do," he murmured. "But that doesn't mean you have to carry the weight alone."
+
+They remained like that for several minutes, a family united amid chaos. The fire from their house, almost extinguished, continued crackling in the distance, the patroller's body lay motionless at their feet, but in that moment, nothing else mattered.
+
+"Excuse me," a trembling voice interrupted the moment.
+
+An elderly man approached cautiously, leaning on a cane. He was one of their neighbors, someone Ren vaguely remembered from his few visits to local friends' homes. His weathered face showed both fear and determination.
+
+"I saw everything," said the old man, his gaze moving nervously between them and the patrollers' bodies. "We won't say anything when they come asking. These... these beasts have been terrorizing the border and the neighborhood for months." His voice grew stronger as he spoke, righteous anger replacing fear.
+
+Other neighbors began emerging from the shadows, their faces showing both fear and gratitude. Some nodded in agreement, others offered silent support with their presence.
+
+"My house is two long streets from here," the elderly man continued. "It's not much, but you have a roof for shelter. And my wife is a water elemental, she can tend to those wounds." His eyes lingered on Reed's bloodied back with concern.
+
+Reed looked at the man, recognition and gratitude crossing his face. "Mr. Chen... I don't know what to say."
+
+The elderly man waved his hand dismissively. "We're neighbors. And in these times... neighbors must care for each other." The simple statement carried profound meaning in their divided city.
+
+Yang and Lin approached. "We should move," Yang suggested. "Though we're far from the border zone, eventually someone will come to investigate."
+
+"Old Chen is right," Lin added, assessing Reed's wounds. "You need some healing and rest before deciding what to do next."
+
+"Wei and I will bury the body and bring the knocked-out patrollers in a moment," Yang announced, using his Stone Behemoth to begin digging.
+
+Ren separated from the embrace, wiping away tears forcefully. His eyes were still red, but there was new resolution in them. It wasn't the look of an adult, but neither that of a completely innocent child.
+
+"The house..." Fern murmured, her voice barely audible over the crackling of the last flames. "Everything is lost. The memories, the years lived..." She paused, her eyes moistening. "The dinner I prepared for Ren. His favorite stew."
+
+Reed placed a comforting hand on her shoulder, and Ren stepped toward her, concern evident on their faces.
+
+Fern saw them, straightened her shoulders, breathed deeply, and wiped her tears with determination. "No," she said firmly. "What matters is that my family is well. Houses can be rebuilt. Memories live in us, not in walls."
+
+"But not everything is lost, we should recover this..." Reed murmured, approaching a patroller's body. He crouched beside the Fire Lizard tamer and took the processed crystals from the ritual. The small pouch felt heavy with more than just its physical weight, it represented their dedication to their son's promise.
+
+Wei moved through the scene, assessing the situation with a critical eye. His hands traced small patterns in the air, using simple mana techniques to disperse footprints and evidence.
+
+"I don't understand," he murmured while working. "Ren's letters always mentioned this area was quiet. You assured that everything was normal…"

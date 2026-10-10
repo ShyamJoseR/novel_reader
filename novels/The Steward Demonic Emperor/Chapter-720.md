@@ -1,0 +1,143 @@
+# Chapter 720: Genesis Stage
+
+Proofreader: Papatonks
+
+“Senior sister, isn’t that the drunkard we met in that small town?” Dan’er pointed at the old man in the air as she asked Shui Ruohua.
+
+Shui Ruohua was startled, “That’s definitely him. Zhuo Fan said he was an unfathomable expert and we later realized it as well, but I didn’t think he’d be this strong. His power must be tyrannical to cause such a huge gulf.”
+
+Chu Qingcheng nodded as well.
+
+Zhuo Fan looked on with a frown.
+
+[Why go about sneaking in when he’s now showing himself?]
+
+[Maybe he got pissed he didn’t find the sacred weapon and figured the Exalted screwed him over. So now he drew them out.]
+
+[Since the cover is blown, it is over!]
+
+But were the exalted easy targets?
+
+[You might be the best in western lands, but that is when it comes to personal strength. Just how much do you have it in you to fight your two former masters?]
+
+[There’s strength in numbers.]
+
+Zhuo Fan frowned.
+
+He figured this might happen. The two sides would meet and after a brief talk they’d figure out he stole the sacred weapon. Then Danqing Shen and the exalted would come to deal with him.
+
+Then again, in this deadly situation, there was still a chance they had some bad blood between them. This would lead to a misunderstanding.
+
+They all knew the sacred weapon was strong and not just anyone could wield it. But who knew the Divine Eye of the Void could control it?
+
+This way, the sacred weapon had disappeared into thin air. They would have no choice but to ask each other for clues. Because only the three of them could get it while forgetting about him.
+
+Next would be fighting it out only to settle nothing in the end. It was his most favorite item of the day!
+
+Zhuo Fan hoped his sneaky plan would go as he wished, to have both sides think the sacred weapon was on each other. And not to resolve their issues while fighting.
+
+Or they would soon suspect him.
+
+[That’s when I’m done for.]
+
+However, the chances of that happening were highly unlikely. Or Danqing Shen wouldn’t just sneak in.
+
+“What is he doing there? We clearly sealed the entrance, only leaving this side. Did he enter right under our noses?”
+
+Exalted Hei Ran took a deep breath and roared in fury.
+
+Exalted Bai Mei just frowned in thought.
+
+Danqing Shen stood before the sacred mine as he shouted at a monitoring array, “Masters, I’ve come to visit. Won’t you see me?”
+
+[Master?! He’s from the Double Dragon Manor?]
+
+The audience was stunned at this development.
+
+The exalted felt helpless. Exalted Hei Ran shouted and a white gate appeared in the air. He stepped through it, with Exalted Bai Mei right behind him.
+
+The audience was even more perplexed.
+
+[The guy called for his master so why isn’t he showing up? Does he want the Exalted to go there? Wait, does that mean the Exalted had disciples? But we know they only ever had one…]
+
+The best in western lands, Danqing Shen!
+
+Everyone exclaimed.
+
+[That old man standing in that storm is that strong!]
+
+Yan Mo had already guessed his identity, but hearing him admitting it still came as a shock.
+
+He was Danqing Shen, and only he dared to say that none of western lands’ ten sects could stop him.
+
+Now he came to see his old masters, the Exalted Double Dragons, the strongest in western lands. He did not come for a social visit though. A battle was about to break out.
+
+[Seeing the three strongest in western lands fight makes this trip all the more worthwhile, ha-ha-ha…]
+
+Yan Mo was shaking in excitement.
+
+Shui Ruohua was dumbstruck. The girls knew the old man was beyond them, but they never thought he was that formidable.
+
+Yet these ignorant lasses actually tied up this monster. If not for Zhuo Fan stopping these fools, they might have done something they’d regret.
+
+Shui Ruohua realized that their being alive was all thanks to Zhuo Fan.
+
+All the girls looked gratefully at Zhuo Fan, only to see him calmly watching the screen.
+
+Whoosh!
+
+The exalted appeared before Danqing Shen and looked at the deep gulf beneath him with a dark look.
+
+“Sheng, is this how you welcome us?” Exalted Hei Ran squinted.
+
+Danqing Shen looked over at him then bowed before the two, “Greetings, masters. If you still see me as a disciple…”
+
+“Humph, you caused such a mess back then and have been cast out of Double Dragon Manor. You’ve since stopped being our disciple!” Exalted Hei Ran flicked his sleeve as he huffed.
+
+Danqing Shen’s face twitched and said, “If that’s the case, why then did you accept my greeting?”
+
+“A day a master, a father for life. Did we not teach you? Even if we don’t see you as a disciple, you don’t see us as masters? You won’t greet us upon meeting us? Humph, you’ve become worse I see.” Exalted Hei Ran replied.
+
+Ugh!
+
+Danqing Shen groaned and sighed, “Master Hei Ran, you’re the same as always, still so shameless.”
+
+“You dare talk to your master like that? As if you’re any better!”
+
+“Yes, I’m nothing to look at, but isn’t that what my master taught me? With your shameless style, I got half of your so-called integrity. That’s called rubbing off on me, ha-ha-ha…” Danqing Shen mocked.
+
+Exalted Hei Ran rolled his eyes and ignored him. He actually felt better hearing this, being brought back to those days as he taught this kid.
+
+Exalted Bai Mei knew his thoughts and smiled, then turned serious, “Sheng, what are you doing here? What do you want?”
+
+“I broke in to take back my sword.”
+
+“Sword?”
+
+Exalted Bai Mei exclaimed, “The Atlas Sword? It’s no longer yours. Why should we return it?”
+
+“Of course it’s mine, you agreed. On the day I can beat the both of you, I have the right to inherit it.”
+
+“That is a promise we made to our disciple, which you no longer are.” Exalted Hei Ran snorted.
+
+Danqing Shen smiled and shrugged, “No matter, I’ll be taking that sword today. No matter how much it costs! I didn’t want to fight with masters, planning on taking it and leaving, but since you found out, we can only go by the old agreement. No matter if it’s one or two, I’ll beat you both and take that sword.”
+
+“You sure can talk. Don’t think you can defeat us just because you got to stab me with a sword when you were banished!” Exalted Double Dragon shouted, “In a single battle, you are the best in western lands, but don’t forget we two never separate. You still have a long way to go to be the best!”
+
+Danqing Shen was angry as he gnashed his teeth, “It doesn’t matter, we’ll know once we fight!”
+
+His entire aura exploded.
+
+The sky dimmed as sword waves covered the heavens and cut everything they touched.
+
+The world was breaking apart before he even attacked!
+
+Everyone cried out. They would all be wiped out in an instant if that happened here.
+
+The best in western lands!
+
+Zhuo Fan shouted, “The peak of mortal domain, Genesis Stage!”
+
+Above the Soul Harmony Stage was returning to one’s ancestry, the Genesis Stage. When the soul made a link with the world’s power, one could truly destroy this land. It was without a doubt, the strongest in the mortal domain.
+
+And this stage was where one broke the shackles of mortality, to enter Spirit King Stage. Only that kind of cultivator had the right to roam the Sacred Domain…

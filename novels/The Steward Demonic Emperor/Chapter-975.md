@@ -1,0 +1,115 @@
+# Chapter 975: North Sea Battlefield
+
+Proofreader: Papatonks
+
+“Sword King Feiyun, a bird told me you have the Soaring Sword. Where is it now?”
+
+With the mobilizing plant established, Baili Yutian went on to more important things and of great personal interest.
+
+Shangguan Feiyun flinched and Baili Jingwei stepped in to cover for him, “Patriarch, please be calm. We had the divine sword but in a sudden turn of events, the Shangguan clan stole it…”
+
+“What?!”
+
+Baili Yutian glared in fury, “You mean to tell me that Soaring Sword is back in eastern lands? Humph, are my empire’s lands so weak that they can’t even get a grip on the things it has?!”
+
+Shangguan Feiyun bowed at once, soaked with sweat, “Sword Patriarch, I am at fault for failing to protect the sword…”
+
+“Humph, you expect to protect my empire when you can’t even get a grip on the divine weapon in your hands? Why are you even a Sword King? Or is it something else? Tell me, Sword King Feiyun, do you still feel some longing for the eastern lands and you simply gave it up—”
+
+“Shut up!”
+
+Baili Jingwei immediately snapped back at Baili Yulei’s insidious accusation, “Patriarch, I was there as well. Sword King Feiyun gave his all, his loyalty is beyond reproach. It was the enemy that outsmarted him and me, managing to steal the sword…”
+
+Baili Yutian gave him a long look, “A devious enemy? You’re saying you lost in a battle of minds?”
+
+Baili Jingwei shuddered on the inside as he felt utter shame to admit his biggest defeat yet. It was a severe blow to the man’s pride in his flawless intellect.
+
+“Prime Minister Baili’s wisdom has no equal. It must be someone from the inside working with the enemy. And it’s plain to see that this spy has a tie with eastern lands, he-he-he…”
+
+With Baili Jingwei hesitating so much, Baili Yuyu took the moment to jeer at Shangguan Feiyun’s plight and kick him while down.
+
+Baili Jingwei gnashed his teeth and bowed as he came clean, “Patriarch, it has nothing to do with Sword King Feiyun. It’s all my fault for losing the divine sword from his ploy. I take full responsibility for my actions. Sword King Feiyun has only followed my advice the entire time. He never failed his duty!”
+
+“Jingwei, you’re a cunning man who has his sights on the end goal. I believe you.”
+
+Baili Yutian nodded, but then his visage darkened as bloodthirst shone in his eyes, “But you all know that I only care about Dao and my pursuit of it. The only reason I formed this empire is to make it easier for me to get closer. And where do I find it? In the divine swords. I’ve completed my inspection of the central area’s Sundering Sword and it won’t bring me any new insight.
+
+“For this reason I am in need to find the other four lands’ divine swords and understand their design, so that I may one day break the heavens and reach higher. I went as far as waging war with them, all for the swords. Central area wouldn’t care about them as long as they sent them over. But they refused me and fought me. Now that I came out and heard that the Sword King Feiyun has brought with him the Soaring Sword to the central area, I couldn’t be happier. But in only a few days you lost it as well? Are you trying to toy with my feelings?”
+
+Baili Jingwei and Shangguan Feiyun gave a frightened bow as they declared, “Never!”
+
+“I know you wouldn’t, but maybe you didn’t care enough?” Glaring at them, Baili Yutian’s only interest on this wide green earth were those divine swords.
+
+The only reason the strongest man in the world did not immediately use violence to curb his rage on these disappointing men was because they were too important.
+
+Understanding his anger, Baili Jingwei shook like a leaf. Danqing Shen stepped in and bowed as he took their side, “Sword Patriarch, Prime Minister has fallen to the enemy’s cunning ploy and lost the divine sword, but he has been vanquished, no longer plaguing our empire…”
+
+“What does it matter? The sword’s still taken!” Baili Yutian rumbled.
+
+Baili Jingwei scrunched up his nerve to risk it saying, “Patriarch, I’ve been useless and the thief escaped. I did not succeed in bringing him to justice…”
+
+“What?!”
+
+Shangguan Feiyun’s shock echoed around, before even Baili Yutian got to say anything, “Prime Minister, didn’t brother Dan end the kid? Why are you saying he escaped?”
+
+Baili Jingwei spoke with great pain to his pride, “I thought so as well, but the one who sold the demon spirit stones to the Serene Shores Trading was a man with a child on his back, matching his description. Furthermore, Murong Xue saw him as well and confirmed how he announced himself as Gu Yifan!”
+
+“That’s not possible!”
+
+Shangguan Feiyun gasped in disbelief, “How can a dead guy reappear in the central area and in just three days cause a mess of the imperial capital by killing almost half of its officials? Is it some vengeful ghost?”
+
+Baili Jingwei sighed, “If only it were that. I fear he pulled a great escape from right under my eyes and enacted an even crueler ploy. He’s too shrewd, my first time encountering such a vile and calculating mind.”
+
+Baili Jingwei looked filled with regret.
+
+Baili Yutian watched them talk and sighed, “In other words, you don’t even know if he’s dead and that he disappeared from under you after having his fun with you?”
+
+“Yes, Patriarch!”
+
+Baili Jingwei sighed and lowered his head. Ever since he found out Zhuo Fan was still drawing breath, he felt crushed, his confidence gone.
+
+He felt humiliated how the enemy just waltzed around and did his thing to ruin the place under his governance.
+
+Baili Yutian nodded and spoke, “Jingwei, I have noticed your talent in deeper thinking, the best in your field, at the top of your game. First hearing about this matter, I thought it was due to gross negligence, only to see it for the truth. You did your best, but met your true adversary. This is… good.”
+
+“I ask for Patriarch’s punishment!”
+
+“No, your failure is the greatest punishment for you. You’re not the wisest after all!”
+
+Baili Yutian grinned, “A man who only knew success will be excited at meeting his match, only to feel crushed in the end having lost his confidence as being the best. It is the greatest blow to any man of great talent, that to his pride. There’s no need to punish you, not when you’re already punishing yourself.”
+
+Baili Jingwei shook and gnashed his teeth in shame.
+
+Baili Yutian continued, “You should thank the heavens for giving you an opponent. If you were like me, undefeated all your life and only looking at the heavens and dismissing anything around you, you’ll come to understand the meaning of loneliness. Such excellence will always be accompanied by solitude. Maybe it’s heaven’s punishment for me, for I’m too strong…”
+
+[Show off!]
+
+Everyone’s faces twitched at Invincible Sword’s overblown hubris.
+
+[No matter how I hear it, it sounds like you’re tooting your horn!]
+
+[We get it, you’re at the top of the world compared to us in martial arts, but could you keep it down a little? You’re seriously asking for it.]
+
+[Then again, no one will try and give it to you either. At the very least make a bit of effort and think of our feelings, please?]
+
+The Nine Sword Kings were men of status and pride, though now cut to the quick by this guy’s bragging.
+
+Sighing, they shook their heads, feeling like ants in front of such a monster.
+
+However, they would never let their heart speak, ever.
+
+Baili Jingwei bowed convinced, “I shall take Patriarch’s advice to heart and will strive to fight him next time and win. Also, I have one more thing to report that may brighten Patriarch’s mood.”
+
+“What is it?”
+
+“Northern lands’ best in Sea Bright Sect, also the strongest in their land, Ouyang Lingtian, has been gravely wounded from fighting the North Sea’s sea demon and the land is weakened. They have no leader now and it’s the best moment to strike. Very few people there could make use of the Heaven Sealing Sword’s power, with no one better at it than Ouyang Lingtian. This way we…”
+
+“Invade the North Sea’s outback and take the divine sword!”
+
+Baili Yutian’s eyes shone and shouted with joy, “The sea demon of the North Sea is ruthless. I once fought him myself, since no man could best me, but it would’ve been so much worse if I had become weakened in the northern lands. What if someone took advantage and killed me. The greatest shame is dying at a nobody’s hands. That’s why I had yet to truly experience the sea demon’s skills. It seems now that the demon is quite amazing. Going to northern lands might give me another chance to fight him, ha-ha-ha…”
+
+Baili Yutian laughed but Baili Jingshi shook his hand, “Patriarch is going into enemy territory by himself? That’s too dangerous? What if they join forces…”
+
+“No matter, because they’ll never get the chance, humph…”
+
+Baili Jingwei was practically basking in victory by now, “This way, in our war with the four lands, the main battlefield will be on the northern lands. It also happens that Shangguan clan took the sword northbound. We’ll snatch that one as well!”

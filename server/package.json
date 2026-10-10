@@ -1,0 +1,13 @@
+{
+  "name": "novel-reader-server",
+  "version": "1.0.0",
+  "description": "Backend API server for Novel Reader",
+  "main": "index.js",
+  "scripts": {
+    "start": "node index.js"
+  },
+  "dependencies": {
+    "cors": "^2.8.5",
+    "express": "^4.22.3"
+  }
+}

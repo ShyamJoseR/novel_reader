@@ -1,0 +1,163 @@
+# Chapter 389, Rampant
+
+Translator: StarReader
+
+Ugh!
+
+Yan Fu was having mixed feelings about this.
+
+He should be happy as a clam that Zhuo Fan wasn’t here to deck him, but the more he thought about it the less Zhuo Fan’s word fit. [As if I’m picking his trash, his damaged goods.]
+
+Xiao Dandan had a sour taste in her mouth as well, her burning heart crumbling from disappointment.
+
+What did Zhuo Fan mean by this? Did Xiao Dandan mean absolutely nothing to him given any time of the day? He didn’t take her seriously, labeling her as an extra baggage from the get-go.
+
+Her disciple standing there all lonely had Peony Overseer’s temper explode to protect her, cursing, “Zhuo Fan, what’s that supposed to mean? You felt nothing for Dandan all this time? Are you dead inside?”
+
+The outburst earned silent looks from everyone.
+
+Then sighs, [It’s truly a mystery how a woman’s mind operates.]
+
+Iris Overseer pulled on Peony Overseer’s clothes awkwardly while scolding her through transmission, “When one man has eyes for Dandan, you curse. When another man ignores Dandan, you curse again. Just what do you want exactly? To have a deathmatch for the lady’s hand?”
+
+[That’s…]
+
+Words left Peony Overseer.
+
+Could Yan Fu versus Zhuo Fan even be called a deathmatch? [Who in this world can even beat that brat?]
+
+She only found that Zhuo Fan’s cold reply had cut her disciple too quickly. Her disciple had alway carried a blazing torch for him for seven years, and counting. [If not for the matter with Qingcheng, maybe…]
+
+“This is fine as well.” Sighing, Peony Overseer consoled Xiao Dandan. Then signaled for Yan Fu to come with her to teach him proper manners.
+
+Yan Fu waited for Steward Zhuo’s instructions, but the guy only flicked him away, “Go, your future mother-in-law is calling you. Better listen to her!”
+
+“You, zip it!” Peony Overseer snapped with a glare on him.
+
+Zhuo Fan struck the perfect bystander figure looking at the street. His heart however was doing somersaults!
+
+Xiao Dandan was a love-struck fool, always behind him like a lost puppy. Now that someone had taken that puppy in, he was over the moon.
+
+Yongning asked Luo Yunchang about the ins and outs of this drama, and sighed. But her gaze for Zhuo Fan was now a heavier one.
+
+[Getting this sugar husband won’t be easy…]
+
+Roar!
+
+The rumbling sound announced the opening of the city gates to reveal fanged savage beasts strutting onward in orderly fashion.
+
+The people cheered.
+
+Most of them had never even seen spiritual beasts, least of all these 5th-level ones.
+
+The noisy second floor fell silent, with everyone focusing on the procession. Five men and one woman were leading, on those 5th-level spiritual beasts.
+
+The crowd fell back at the imposing aura, avoiding their eyes. The ones behind had no problem seeing those foreigners perfectly.
+
+Especially the girl, of stunning beauty. She had a certain wild vibe the Tianyu women lacked, leaving the men enraptured and drooling.
+
+Gulping, Long Xingyun squinted, “A fair and virtuous lady, a great catch!”
+
+[Perv!]
+
+The women around rolled their eyes at him.
+
+“Quanrong are famous for their beast rearing skills. But it’s my first time seeing the combined power of a man and beast! “
+
+Xie Tianshang’s sword was out of its sheath, flashing dangerously. His two eyes filled with thirst for battle, wishing nothing more than to jump down there and take the foreigners for a spin.
+
+Everyone shook their heads, [Martial fanatic!]
+
+Long Xingyun advised, “This is a chance for our nations to shake hands. You can’t go start a war! Especially with that woman, he-he-he…”
+
+Their talk went in one ear and out the other in Zhuo Fan’s case. All his attention was focused on the riders.
+
+They had three Profound Heaven cultivators, three Radiant Stage cultivators, and a thousand veteran cavalry in the Bone Tempering Stage. They rode on a thousand 3rd-level spiritual beasts and six 5th-level spiritual beasts. [Can this army threaten the Luo clan?]
+
+Zhuo Fan sighed.
+
+“Zhuo Fan, what are you looking at?” The princess was piqued by his heavy gaze.
+
+“At oddities!” Zhuo Fan’s eyes twitched.
+
+The princess was puzzled, “What oddities?”
+
+“If I am looking, that means I clearly can’t find them, now can I? I wouldn’t be looking otherwise, you daft girl!” Zhuo Fan rolled his eyes.
+
+The princess flushed red and glared in a pout.
+
+Roar!
+
+The sky shook under the noise and the Quanrong delegation stopped. Zhuo Fan’s side watched one leader’s mount roaring and getting ready for attack.
+
+In front of it was a five year old child, crying on the ground.
+
+A grizzled and thin old man charged out of the crowd and hugged the child, “Forgive me, the child is too young to understand running in front of you. I’ll take him away!”
+
+“It’s fine, uncle…” The woman smiled.
+
+But the jacked-up leader snickered over her, “Are all Tianyu’s people without decorum? I am Quanrong Empire’s general and for you, an ant, to bump into me is a gross act of disrespect. Can you bear the responsibility of a war between us?”
+
+“Cut the act. How could we start a war over this? We’d have been at war for ages by now otherwise.” Zhuo Fan mocked.
+
+The princess bobbed her head.
+
+So did the other young masters, looking at the buffed tough guy with contempt. Those words of his only worked on the common people.
+
+While the houses were too wise to fall for some cheap provocation.
+
+The old man was but a common man however, paralyzed on the ground in fear of what he’d done. He had just condemned his fellow countrymen to a life of pain and suffering.
+
+He dropped to his knees and begged, “Spare us lord, I am at fault. Please don’t aggravate the matter!”
+
+The tough guy snickered, filled with contempt. But the woman frowned and glared, “Zha Lahan, stop making a scene!”
+
+“He-he-he, young miss, I was only messing with Tianyu’s pests. It won’t change anything!” The tough guy waved his hand, turning to the old man, “I can overlook this for Tianyu, out of the kindness of my heart. But my mount here has special tastes, you see. Every time it bumps into someone, it feels the urge to swallow something. Or his bad mood might affect my own. So tell me, how will you settle this?”
+
+The old man paled. Figuring the general wanted to feed his spiritual beast with the child. And he wanted the old man to do it too!
+
+But how could he?
+
+The woman snapped, “Zha Lahan, having fun is one thing, but don’t cross the line!
+
+“He-he-he, young miss, it’s just a game. No harm no foul!” The tough guy chuckled, yet his vicious eyes never left the old man. Waiting to see him give the child to the spiritual beast.
+
+The spiritual beast bared its fangs and licked its maw with bloodshot eyes.
+
+“Humph, absurd, they’ve come to our land and yet act all high and mighty!”
+
+Xie Tianshang slapped the table, his sword half-drawn. Long Xingyun advised, “Brother Xie, they were invited. We can’t interfere, not with the officials having yet to appear. It will only invite trouble.”
+
+“Ha, the great noble houses, afraid of stirring trouble? “
+
+The princess snapped, “I never saw you stop once from looking for trouble yet now you’ve decided to sit back? Chickens! Zhuo Fan, follow me as we teach them a lesson!”
+
+“Knock yourself out. I don’t feel like it.”
+
+Zhuo Fan flicked his hand, “Like you said. The seven houses have made looking for trouble practically a tradition. So you can handle it. Oh, Xiao Dandan, weren’t you once high strung as well?”
+
+“I…” Xiao Dandan blushed with a lowered head, “I was more confused than angry then. Why bring it up…”
+
+“Yan Fu, you’re no better either!” Zhuo Fan glanced at him.
+
+Yan Fu nodded with calm, “True, every time I went out with my master I’d be throwing my weight around. But since I’ve joined the Luo clan, with its tight rules, I never get the chance.”
+
+“Well said. You’ll show off again one day, not to worry!”
+
+Zhuo Fan snapped his fingers and snickered, “See that, princess? We may look calm and kind on the surface, but there’s a festering evil in our bones, like those guys below. Aren’t you expecting too much, sending us mean guys into another mean guy’s business?”
+
+The princess blushed in anger, “Then I’ll go!”
+
+Meanwhile, the old man was hugging the sobbing child tighter, under cold hard pressure and indecision. It was then that a scoff came.
+
+“Quanrong are guests and nothing more. Since when have they started acting as hosts?”
+
+Whoosh~
+
+Yun Shuang stood before the elder and the child.
+
+Zhuo Fan sighed.
+
+He didn’t give a hoot about others, while being unable to ignore his own people.
+
+His eyes glinting, Zhuo Fan’s mouth curled up in his trademark evil smile. [Time to probe the Quanrong for a bit…]

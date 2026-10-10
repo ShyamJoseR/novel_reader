@@ -1,0 +1,63 @@
+# Chapter 1336: Damage
+
+| The Steward Demonic Emperor | Next Chapter>>
+
+Writer: StarReader
+
+Proofreader: Silavin
+
+“Argh!” As light pierced the thick clouds of dust, one could perceive a faint figure, shielded by a thin grey shield of Yuan Qi. It had no leg. Only half a torso with a right arm and half a head. Nevertheless, everyone here recognize him. He was Heavenly Sovereign.
+
+“Ugh, being on the receiving end of such power was not what I had in mind when I came to finish off all of you.” He grunted, barely holding himself together as he flayed at the seams. “Though, this is nothing a little reset won’t fix, ha-ha-ha!”
+
+He gloated at the end, though cut short as one moment he was dying and the next, returned to having his body back. He was still wounded from the sacred beasts’ black thunderflame, having been unable to offset it.
+
+Zhuo Fan was grave, watching Heavenly Sovereign with a critical eye as thoughts spun in his head. He needed to make the damage more permanent and final. Heavenly Sovereign was tired and upon closer look at his group, they were tired as well. Exhaustion was obvious in such a prolonged fight. Nerves stretched taught, wondering what trick the enemy might pull next, with one misstep capable of ending them. He had to be cautious while the other side could always reset himself. It seemed to never end, as though the fight had just started again. This was clearly a battle of attrition, which was not in their favor.
+
+What surprised them all was how Elder Song was the worst off. He was not even able to stand upright as he huffed like he had ran a marathon.
+
+He needed him for at least one more attack if he wanted to win this.
+
+“Damn it! What the hell did you do to me?” Heavenly Sovereign roared out of nowhere, making the others flinch, being on guard for anything he might be doing.
+
+Zhuo Fan narrowed his eyes, giving the shivering figure a long look as Heavenly Sovereign coughed black blood, feeling his aura growing weaker for some reason.
+
+“Was his reset faulty?” He ventured a guess.
+
+“Don’t patronize me, Zhuo Fan! You clearly did something! Why else would the reincarnation path not be able to offset all the damage? It feels like my soul is being ripped apart, argh!” Heavenly Sovereign snapped in rage, the fury and fear coming out of him in waves from being in the dark as to what was going on with him. But all he knew for certain was that Zhuo Fan’s last attack did something to mess with his own skill.
+
+Zhuo Fan beamed, realizing this might actually do the trick. Since Heavenly Sovereign had no idea what he went through, he could just hit him again and gain, until there was nothing left. Heavenly Sovereign would have no choice but to reset each time, but it would only make his situation worse. [The tables have turned.]
+
+“How many times can you keep this up?” Zhuo Fan asked Elder Song. It all came down to how long this old alchemist could last. He was the crux of this battle, an essential piece if they wanted to win.
+
+“Two, maybe three times at best.” Elder Song panted, winded from that just one attack as well as the Heavenly Eye he created that took the most out of him. This was why he didn’t want to overuse his Sovereign power, for it was sure to be his end.
+
+He was much more content with sticking to alchemy and the newfound joy in teaching his disciple that he neglected for decades in his obsession with refining before he arrived at the Sacred Domain.
+
+“Let’s get him before he can recover and make sense of his situation! Now’s our chance!” Zhuo Fan sent, making the sacred beasts repeat the previous black thunderflame attack while he and the Sovereigns used their paths to unleash a myriad of colorful blasts at Zhuo Fan’s instructions.
+
+As the black thunderflame approached the writhing and bleeding figure of Heavenly Sovereign, his grunting jerked to a stop, as did his fidgeting. He gave the attack an icy stare, using his elusive movement he gained from the Child Sovereign’s path to avoid it with ease.
+
+When the coup de grace came from Zhuo Fan as he used the Demon Transformation Art to fuse the attacks of the Sovereigns, he just blinked out of the way. He merely watched it hit the sea of blackness, spurring on the speed of its expansion.
+
+Heavenly Sovereign’e eyes narrowed, knowing that had to be what left him in shambles even after the reset. He gave the group a cold glare, letting them feel his full bloodthirst.
+
+“Damn it!” Zhuo Fan cursed. He was too rash to grasp victory and overlooked the fact that Heavenly Sovereign might have been faking it into drawing them out.
+
+He would need to think of another approach to get Heavenly Sovereign. A glance at Elder Song’s even more exhausted figure told him he had to work fast as well. [I wanted to avoid this.]
+
+Zhuo Fan flew closer to the Sovereigns while signaling to come over.
+
+Heavenly Sovereign was not one to let them do what they pleased, shooting for them and using Void Annihilation.
+
+“Kunpeng, stall him!” Zhuo Fan shouted, needing a bit of time to get his plan across.
+
+The sacred beasts worked under Kunpeng’s orders to send another black thunderflame at Heavenly Sovereign’s attack, while also blocking his path.
+
+As the strikes clashed, they left behind only destruction and decay as motes of black flames burned the air and the land to nothing, with the Void Annihilation still coming after the sacred beasts.
+
+They had to take on their huge, original forms as it arrived, wanting to leave nothing to chance. The impact flung the beasts in every direction, forming a crater at where they impacted. Some if which soon turned into a lake of their own blood.
+
+“Fine, but I expect it back once this thing is over!” Once Zhuo Fan told them him plan, Elder Song complained, but nevertheless relented. He saw the sacred beasts getting knocked out of commission, if not, killed.
+
+| The Steward Demonic Emperor | Next Chapter>>

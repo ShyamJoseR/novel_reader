@@ -1,0 +1,151 @@
+# Chapter 123, Golden Tyrant Body Art
+
+A morning ray of warmth spilled into the house onto Zhuo Fan’s peaceful face.
+
+His eyelids trembled and he smiled, looking at the person in his arms.
+
+He and Chu Qingcheng lived their days in peace like a game of house. They toiled by day and rested in the same bed by night.
+
+Although nothing happened, they leaned on each other, giving a sense of peace to both. Zhuo Fan, who was a ruthless demon, never stumbled upon such feelings before.
+
+[Perhaps, this is the warmth of a family.]
+
+Zhuo Fan watched the beauty in his arms absentmindedly. Chu Qingcheng’s appearance could incite wars.
+
+As the saying went, a woman was a hero’s downfall. He has experienced this first hand. Living a peaceful life with Chu Qingcheng was all that was on his mind right now.
+
+[What’s the point of rising to the top? What’s the point of ruling the world? How can it compare to a beauty’s smile?]
+
+[Perhaps this is what they call to fall from grace. But so what? I am willing to fall, ha-ha-ha...]
+
+Zhuo Fan laughed inside, the ever unchanging Demonic Emperor was wavering. He gazed at Chu Qingcheng resting on his chest.
+
+Zhuo Fan couldn’t help but want to lean in for a kiss!
+
+Whoosh~
+
+Suddenly, Chu Qingcheng opened her eyes and threw them out of the house.
+
+Bam!
+
+The house went up in flames, turning into ashes in an instant. From the rising ashes, a figure emerged, the outraged Huangpu Qingyun.
+
+The fire in his eyes burned even hotter when he saw Chu Qingcheng and Zhuo Fan holding hands.
+
+“Man, I just fixed the house!”
+
+Huangpu Qingyun was angry, Zhuo Fan was pissed. This was his and Chu Qingcheng’s quiet home. And it barely lasted a couple of days before it went up in smoke.
+
+[Son of a bitch! You’ve gone too far! You take me for a meek lamb?]
+
+These days of peace and quiet seemed to have gone to his head. It made him forget he was acting as Song Yu. Zhuo Fan’s eyes flashed with killing intent. He took a step forward, ready to get Huangpu Qingyun acquainted with pain.
+
+But Chu Qingcheng blocked him and whispered, “Song Yu, stay behind me!”
+
+Finally realizing what he was about to do, Zhuo Fan relaxed his fists.
+
+He couldn’t step in now, or Regent Estate would have an excuse to move against Drifting Flowers Edifice and ruin all his plans.
+
+[These days have been so relaxing that I forgot about the bigger picture!]
+
+Zhuo Fan cursed inside, then sighed, “Qingcheng, I will leave it to you.”
+
+“Qingcheng?” It only worked to inflame Huangpu Qingyun’s anger, “You’re on a first-name basis now, like a cheating couple? I will make sure you will die miserably today!”
+
+“Huangpu Qingyun, watch your mouth? Who’s a cheating couple?” Chu Qingcheng glared.
+
+“Humph, you’re asking me? Chu Qingcheng, even when we settled on the agreement, you did not once remove your veil for me! Yet now you just let a damn punk see you first...”
+
+Chu Qingcheng’s eyes were cold, “Huangpu Qingyun, you’re the one who broke our agreement first. Why would I ever show you my face?”
+
+“Uh, hold on, you lost me there!” Zhuo Fan stepped in.
+
+“You are so petty. She only lifted her veil and you want to kill me? Even with Qingcheng as your childhood sweetheart, you only don’t wish for anyone to have a look at her appearing? Your reaction is uncalled for. It is not like I steal your wife or something?”
+
+As the saying went, silence was golden. Huangpu Qingyun was now an explosive, ready to blow, “Rotten punk, you dare feign ignorance? You’re dead, you hear!”
+
+Huangpu Qingyun punched despite being 300 meters away. Nonetheless, a golden light flew from his fist and arrived in a blink.
+
+Zhuo Fan’s heart froze.
+
+The body refining art he used could not be compared to Zhuo Fan’s secret refining art, but was top-notch nonetheless.
+
+In normal cases, a Profound Heaven expert killing a Bone Tempering cultivator was an easy feat. However, the distance had to be a bit smaller, or the Yuan Qi would fade before it could pass through a Bone Tempering expert’s tough body.
+
+Yet, this light was different. Zhuo Fan was certain this attack would’ve nailed your average Bone Tempering expert. Then again, he wasn’t your average one either and could handle it.
+
+Zhuo Fan made some guesses and even with this advantage, he knew his odds of winning were decent if he were to fight.
+
+He dispatched the 3rd layer of Profound Heaven Stage You Guiqi with ease. Yet, currently, he felt like he was going to have a hard time against this 2nd layer expert. It spoke volumes of the Regent Estate’s strength.
+
+“Watch out!”
+
+Chu Qingcheng pulled Zhuo Fan ten meters away, dodging the light. He heard a boom and looked to see a 30 meter large stone pulverized.
+
+Chu Qingcheng was flustered. She knew Huangpu Qingyun was strong, but not to this extent. Her expression was grave.
+
+“Humph, Qingcheng, did you see that? That punk only knows how to hide behind your skirt! When danger comes, you always have to protect him in the end. Such a man is unworthy of you!” Huangpu Qingyun snorted.
+
+Chu Qingcheng raised her head high, “And? This is what I desire. Aren’t most of the Drifting Flowers Edifice’s men all like this?”
+
+“Uh, Qingcheng, I don’t mean to argue, but I don’t hide behind women.” Zhuo Fan’s voice was quite naive, but this was something he could not let go. He needed to make a point here. He was none other than the Demonic Emperor. His name was at stake. Even if he was in a disguise, this was a matter of pride and he couldn’t get sloppy in times like these.
+
+Glaring at him, Chu Qingcheng lashed, “Zip it! No one was talking to you!”
+
+“Ha-ha-ha, well said! If you call yourself a man then don’t freakin’ hide behind a woman. Come out and face me alone!” Huangpu Qingyun gave a taunting laughter.
+
+Zhuo Fan’s eyes went cold, staring at him with killing intent, though he didn’t let it get to him, “We will fight, don’t you worry, but not today. There’s no harm in killing you two days later!”
+
+The two watched him in shock and even Chu Qingcheng looked at him funny.
+
+[What gave this brat the nerve to speak so boldly? Huangpu Qingyun was in the 2nd layer of Profound Heaven Stage, and a body cultivator!]
+
+Yet, he was just a 2nd layer of Bone Tempering cultivator from a third rate clan. The gap could not be bigger.
+
+Though his eyes spoke how confident he was of turning this threat into reality.
+
+“Ha-ha-ha, perfect!”
+
+Huangpu Qingyun was laughing from anger. He didn’t expect a day would come when a nobody would predict his death.
+
+It was utterly ridiculous!
+
+[This punk must’ve lived in a cave and knows nothing of Regent Estate’s power. I just displayed my power yet he still dares speak with such nerve.]
+
+“No need to wait, I will squeeze the life out of you right now.”
+
+In the wake of Huangpu Qingyun’s words, he leaped at Zhuo Fan. Chu Qingcheng held Zhuo Fan behind her in concern and had her other hand struck forward.
+
+Bam!
+
+Huangpu Qingyun’s advance stopped, his fist was covered in ice. While Chu Qingcheng flew 20 meters, leaving a trail of blood.
+
+“Humph, Qingcheng! For a brat, you even dared to use the Arcane Moon Art to block me!”
+
+Huangpu Qingyun flicked the ice on his hand away, “You only have yourself to blame for what is about to happen!”
+
+Roaring, Huangpu Qingyun stomped his feet and a golden light enveloped his body. There was even a faint golden dragon above his head. With a faint dragon roar, six golden dragons wound around his body.
+
+Dragon Vein Body Refining!
+
+Zhuo Fan finally got to know the source of his body’s power. He trained his body with the essence of Dragon Veins.
+
+Every Dragon Vein held the essence of earth. The power of earth was unshakable, lofty, and tough. Refining his body with this essence was like turning one’s body into a mountain, holding both power and stability.
+
+Speaking of Huangpu Qingyun’s body refining method, it was another path leading to the same result as his own.
+
+Zhuo Fan’s body was cast using the blood of the earth, Diamond Sand. It was made with a great deal of earth essence. Both of them held similar bodies, but there were some disparities.
+
+While Zhuo Fan was a living weapon, Huangpu Qingyun was half human half weapon. The gap was small but will be magnified as one’s cultivation increased.
+
+Chu Qingcheng cried in panic, “Regent Estate’s profound ranked martial art, Golden Tyrant Body Art!”
+
+“He-he-he, Qingcheng, I told you not to shield this punk with your life!” Huangpu Qingyun charged at Zhuo Fan.
+
+Chu Qingcheng’s palms danced. Tens of white ribbons flew at Huangpu Qingyun and encased him like a mummy.
+
+Yet the next moment they were ripped to shreds and Chu Qingcheng spat blood while recoiling ten more steps. Huangpu Qingyun’s speed wasn’t affected in the least.
+
+Zhuo Fan clenched his fist, ready to unfold his Lightning Wings.
+
+[It seems that have no choice but to reveal myself and fight this guy to the death...]

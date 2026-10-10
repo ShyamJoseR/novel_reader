@@ -1,0 +1,153 @@
+# Chapter 193, Vicious Pill King’s Reemergence
+
+Zhuo Fan easily picked on the three’s thoughts and jeered, “You should all lighten up and be thankful that all of you are unworthy of me ending you personally. Not with your meager strength. The one all of you shall have the honor of facing is our Pill House Elder!”
+
+Zhuo Fan patted the elder’s shoulder, “Elder Yan, they’re all yours!”
+
+“Ha-ha-ha, don’t worry Steward Zhuo, these old goats are nobodies. I’m more than enough for them!” Yan Song laughed, bringing out the old Vicious Pill King’s haughty demeanor back out.
+
+Zhuo Fan nodded and chuckled before leaving.
+
+The three elders’ faces were pitch black. As the saying went, ‘death before dishonor’.
+
+Even though they were all far beneath Zhuo Fan’s match, his utter disregard of them had their minds filled with nothing but rage.
+
+By the way, who was this cocky uncle Zhuo Fan left them with? [We don’t know what hole you crawl out of, nor do we care, but who do you think you are to talk to us like that? Zhuo Fan?]
+
+The three stared daggers at Yan Song. The latter was quite relaxed and confident.
+
+“Old coot, state your name. I do not kill without knowing my opponent’s name!” You Laoliu coldly stated. The other two watched Yan Song with the same desire, to rip him apart.
+
+Grinning, Yan Song’s eyes glinted evilly, “Humph, I’m afraid of making you wet your pants if I do!”
+
+“Oh? Do enlighten us please as to what other circus clown the third rate Luo clan has besides your freak, Zhuo Fan. Ha-ha-ha... “
+
+The three’s laughter dripped sarcasm.
+
+Squinting, Yan Song’s mouth curled in pride, “Then unclog your ears and prepare to be amazed. I am Yan Song!”
+
+[What?!]
+
+The three were dumbstruck, with bulging eyes and everything. Especially Pill King Hall’s Yan Zhenglan. His eyes were as big as saucers.
+
+They all knew Yan Song fell at the hands of Zhuo Fan in the chaos of Drifting Flowers City. How the hell did he end up here, and as Luo clan’s Pill House Elder no less?
+
+When Yan Zhenglan and Lin Rufeng came from their stupor, they looked at Yan Zhenglan. He was the only one here who was most familiar with Yan Song, being from the same house and all.
+
+He should spot immediately if that man was the real Vicious Pill King.
+
+After a long and hard scrutiny, Yan Zhenglan gasped, “Vicious Pill King, Elder Yan Song! It’s really you!”
+
+You Laoliu’s heart trembled and his face grew solemn.
+
+[No wonder this geezer mocked us.] While he was known as the Vicious Pill King, they were truly and utterly titleless.
+
+“Why, Yan Song? Why did you betray Pill King Hall!?” Yan Zhenglan shouted.
+
+Yan Song had only mockery for him, “Vicious Pill King had followed the natural course and died in Drifting Flowers City from Zhuo Fan. And from his death, Yan Song was reborn. Tell me, where’s the betrayal? Besides, with me out of the picture, isn’t the Vicious Pill King title up for grabs? Humph, I’m not naive. Don’t tell me the Pill King Hall didn’t break out in celebration once they heard of my death.”
+
+Yan Zhenglan stammered in silence.
+
+From his reaction, the others knew Yan Song told the truth. No wonder he betrayed Pill King Hall, he had nothing holding him there, no relation to speak of.
+
+Scratching their nose, the elders’ eyes exposed a fierce light.
+
+With everything clear, any argument from them would do nothing in bringing Yan Song back. In that case, they had to go through Yan Song if they wanted to clear the array.
+
+But Yan Song’s old title still gripped their hearts in fear.
+
+“Old Yan is an expert in poisons. It is my domain as well. I will hold him, while you two flank him from the sides. We have to end this swiftly. It will be hard to get to him once he hides behind his Rainbow Cloud Palm!”
+
+Yan Zhenglan signaled the two as he whispered. The two nodded.
+
+Yan Zhenglan then shot like an arrow for Yan Song with an outstretched palm.
+
+A python made of purple miasma came out and threatened to bite Yan Song.
+
+“High spirit ranked martial art, Shifting Cloud Palm!”
+
+His mouth tracing a cold smile, Yan Zhenglan mocked, “Humph, Yan Zhenglan, an inept like you who can’t use the Rainbow Cloud Palm dares to play with poison around me?”
+
+Seven colored veils of mist flew from Yan Song’s palms like dragons, forming a rainbow storm crushing the purple python and rushing for Yan Zhenglan.
+
+“Humph, now, this is Pill King Hall’s real skill, profound ranked martial art, Rainbow Cloud Palm!”
+
+Yan Zhenglan focus sharpened and forehead started to ooze cold sweat. However, he was in no rush because he knew that he was going to be sacrificing himself.
+
+Suddenly, You Laoliu and Lin Rufeng appeared left and right of Yan Song. Yan Zhenglan laughed, “Yan Song, you’re done for! You’re exposed before you hide in the Rainbow Cloud Palm’s poisonous mist. I may not train in your martial art, but I know it like the back of my hand. And you will suffer dearly for it!”
+
+You Laoliu and Lin Rufeng had vicious grins, thinking this win was in the bag.
+
+When the grand Vicious Pill King fall under their attacks, who would anyone dare call them without a title in the future?
+
+Although, Yan Song’s face didn’t seem particularly worried. As the two’s palms inched closer, he made a hand sign and two dragon roars echoed out!
+
+Suddenly, two groans came as two dragon tails jumped from the earth and sent the two men barreling. You Laoliu and Lin Rufeng were still trying to make sense of everything. They were just inches from striking down Yan Song when out of the blue, their bodies were flung about like garbage.
+
+Just as they smacked the ground two hundred meters out, the rainbow storm engulfed Yan Zhenglan.
+
+Boom!
+
+Yan Zhenglan flew a full hundred meters as he spat black blood. His body was now filled with the deadly poisons of the Rainbow Cloud Palm.
+
+You Laoliu and Lin Rufeng crawled back to their feet. They felt weary for some odd reason and looked down in shock. The green vestige on their body was evidence of poisoning.
+
+“How?” The three roared at the same time.
+
+Yan Song snickered with an evil glint in his eye, “Yan Zhenglan, you aren’t useful even as bait! You take me for a sitting duck if I’m not hiding in the Rainbow Cloud Palm mist? He-he-he, did you forget where we are? This here is a 5th-grade array, the Poison Dragon Array that I am able to control! Here, I can create all the poison mist I want. Your plan failed the moment you thought it out!”
+
+Yan Song made another sign.
+
+Roar!
+
+Seven dragon roars were heard as seven hundred-meter-long dragons of different colors came from beneath his feet. Their maws were open and the poisonous stench was easily felt coming from their fangs.
+
+If not crushed to death in their grip first, the poison would rip them apart from the inside out!
+
+The three cried in alarm.
+
+Yan Song alone was bad enough with his nefarious poison, but now, with this 5th-grade array, he was invincible.
+
+Not even a Radiant Stage expert could escape him, least of all them!
+
+The three’s hearts sank as despair set in.
+
+Yan Song cackled like mad, just as he did back in the Drifting Flowers City. That rampant Vicious Pill King was back.
+
+Yan Song’s ego even grew, if that was possible. Because he had the 5th-grade array, he was god. [Not even a Radiant Stage expert can take me on! Ha-ha-ha...]
+
+...
+
+In another place, Sun clan’s father and daughter along with Cai clan’s father and son finally came to Blackwind Mountain. Since flying was not an option, they had to rely on their tiny legs to run themselves into exhaustion.
+
+But as they gazed upon the four light pillars, hope glimmered in their eyes.
+
+“Cough, cough, congratulations 6th elder for your complete success!” Sun Clan Head panted then cupped his hands and bent his wais ninety degrees down angle.
+
+Sun Yufei felt awkward, “Father, there’s no one here. What are you doing?”
+
+“Ha-ha-ha, foolish girl, the elders are cleaning up the Luo clan and would surely gain many contributions for this. As those experts move fast, I fear that my nerves may get to me when the time comes to congratulate them and my manners would slip. It’s best I practice my performance for when it counts!”
+
+Sun Clan Head smiled, “Yufei, let’s do it together for a brighter future!”
+
+Sun Yufei’s mouth twisted in revulsion.
+
+“Congratulations, Elder Li, in returning victorious!”
+
+Suddenly, Cai Rong bowed as well as he mocked Sun Clan Head, “If you want a sponsor, you have to think big. Elder Li is a Regent Estate Venerable. Everything will be ours once we earn his favor!”
+
+“He-he-he, Xiaoting, practice along!” Cai Rong patted Cai Xiaoting’s shoulder. A chip of the ol’ block, Cai Xiaoting’s gesture was spot on like his father’s. Sun Yufei felt more disgusted than ever.
+
+Sun Clan Head sneered, “Cai Clan Head, you sure are ignorant! But what can you expect when you haven’t been in touch with the seven houses and know nothing about them. A Venerable may be strong, but they ignore house affairs. Only elders hold the true power in a house.
+
+“Your ass-kissing has more worth directed at an elder. They are the ones who can make you a vassal clan!” Sun Clan Head spoke with immense pride.
+
+Cai Rong scowled and smoothened his beard as he sank in his thoughts.
+
+Then, a lazy voice reached them, “Ass-kissing must be done in style. One wrong kiss and you’ll get the gallows! I mean, won’t you offend the Venerables if you only do it to elders? And if you flatter the Venerables, won’t the elders feel irritated? What a dilemma. Why not both? You may get nothing, but at least you’ll keep your heads!”
+
+“Good point!”
+
+Clan Head and Sun Clan Head looked at each other then bobbed their heads. Only then they reacted, [Who said that?] And turned to look.
+
+It was better not knowing. They cried out with such fear, one may think they saw a ghost, “Z-Z-Zhuo Fan, why are you here...”

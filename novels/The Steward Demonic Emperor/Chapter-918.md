@@ -1,0 +1,111 @@
+# Chapter 918: Young Sanzi
+
+Proofreader: Papatonks
+
+Whoosh!
+
+The tearing in space was clear in everyone’s ears. As the sword was just a meter away from taking their lives, the Divine Eye of the Void warped the space beneath it, working its best to save them instead.
+
+Shangguan Feiyun and Zhuo Fan acted from different sides on the same target, one to kill and one to save, yet both giving their all.
+
+It was in this strained contest that Zhuo Fan began to show signs of coming up short. Killing always came easier than saving.
+
+Even as Shift and Soaring Sword Art were exerted on the two at the same time, the sword came from Shangguan Feiyun and it didn’t need to even touch them to cause tremendous pain and harm.
+
+Gu Santong would live through it with his sacred beast power, but Shangguan Qingyan was too weak here, not even in the Shangguan Qingyan and was up against a peak Genesis expert’s ultimate skill. Even a glancing blow was enough to render her broken in body and mind.
+
+Gu Santong understood this and noticed how Zhuo Fan was falling behind. He focused and pulled Shangguan Qingyan behind him. With a stomp, his body shot for the obliterating sword attack with no remorse.
+
+“Young Sanzi!”
+
+Zhuo Fan and Shangguan Qingyan cried out but Gu Santong’s mind was set, punching at the huge sword with his fist wrapped in scarlet.
+
+“I am the Invincible Scamp Gu Santong! I have never known defeat and no puny sword energy can harm the likes of me…”
+
+To the eyes of any onlooker, he was no whelp, no child wet behind his ears, but a brave hero unflinching in the face of death and welcoming with open arms.
+
+A pity he was up against one of the Nine Sword Kings, Shangguan Feiyun. He might have held his own against any other Genesis Stage expert, but not against Shangguan Feiyun…
+
+The sword went through Gu Santong’s arm with a muffled sound, going after Shangguan Qingyan. His challenging declaration came to a stop, forced to spat crimson blood.
+
+His rosy complexion turned deathly white as his frail body swayed in the wind and fell backward.
+
+But his fist had managed to slow the sword for less than a second, something anyone would disregard, but it held utmost importance in a crisis such as this.
+
+The sword finally grew slower than Zhuo Fan’s Divine Eye of the Void.
+
+Whoosh~
+
+Shangguan Qingyan vanished in an instant, now appearing next to Zhuo Fan, behind the glowing curtain of light.
+
+The next moment, the sword crossed the now empty space and struck the crowd with a mighty boom. The howls and cries pierced the sky as anything in fifty kilometers was turned to rubble. The Genesis Stage experts standing there were the ones to suffer for it, with more than thirty dead. It was testament to Shangguan Feiyun’s power.
+
+Everyone was shocked inside at the outcome, not at Shangguan Feiyun’s strength, but at Zhuo Fan’s skill, able to save someone from right under Sword King Feiyun’s nose.
+
+Shangguan Feixiong noticed his daughter was safe and eased a breath he forgot he was holding. He felt conflicted now about Zhuo Fan, torn between gratitude and hatred, but admired him nonetheless.
+
+[The boy can do the impossible, unflinching as the world is collapsing on him. Just who is he?]
+
+Zhuo Fan cared not about other’s reactions, his right eye flashing once more. He saved Shangguan Qingyan but now he was staring at Gu Santong as he floated there.
+
+However, in a fight between experts, using one skill might not work a second time.
+
+Someone darted and grabbed Gu Santong’s neck. The man flicked his hand and canceled the Shift.
+
+The golden glow in Zhuo Fan’s right eye faded and looked up with hatred and clenched fists, “Shangguan Feiyun!”
+
+“Gu Yifan, so you’re not just an unknown 11th grade alchemist but also in possession of some weird skills.”
+
+Shangguan Feiyun dangled Gu Santong in front, splattering the blood flowing for young Sanzi everywhere, “One is a freak and the other is a monster. You two sure opened my eyes wide today. The old man is crafty and shifty while the young son wields savage power. That punch really hurt and I lost myself there and almost killed them. How lucky your son is so capable in stopping my sword and still come out alive. But try anything else now and I’ll snap his neck like a toothpick!”
+
+Zhuo Fan’s heart sank.
+
+Shangguan Qingyan cried, “Young Sanzi…”
+
+She turned to Zhuo Fan, “Gu Yifan, you have to help him! Just give up the dead sword. He’s your son! “
+
+“Yeah, give it up. Nothing can come close to the importance of your son’s life, right? Ha-ha-ha…” Shangguan Qingyan mocked while holding young Sanzi.
+
+As blood flowed from the ruined arm, young Sanzi’s condition was growing worse by the second.
+
+Others were feeling for him. Such a monstrous strength, but all in the body of a little child. His act of sacrifice earlier only made him more admirable.
+
+If it were anyone else holding Gu Santong, some of them might even lend a hand.
+
+[What kind of man are you, bastard, to pick on a child…]
+
+Zhuo Fan hesitated as Gu Santong’s grew weaker. But then the child strained to look at his father, giving him a a look and a smile. He then closed his eyes, at peace with his fate.
+
+Zhuo Fan’s brow shook, his fists clenched. But ultimately he let it all go. He grabbed Shangguan Qingyan’s shoulder and made the last sign.
+
+“We’re leaving.”
+
+“What?!”
+
+In Shangguan Qingyan’s moment of anxiety, worry and shock, the starlight shone brighter and the two faded away, followed by the vanishing of the curtain of light.
+
+Everyone gasped, even Baili Jingwei.
+
+[Is Gu Yifan so cruel? Did he give up on his son for a damn sword?]
+
+Shangguan Feiyun’s face twitched, his eyes dimmed and shook from anger. His hand gripping Gu Santong tensed in reflex. The child was only still alive thanks to his sacred beast heritage.
+
+“This is utterly preposterous…”
+
+Shangguan Feiyun howled at the sky, regarding the child with bloodlust, “Damn you, Gu Yifan! Since you don’t want him, then I’ll get rid of him for you!”
+
+Shangguan Feiyun waved his Yuan Qi charged finger at Gu Santong.
+
+He didn’t finish as another curtain of light came down from the heavens above. The Big Dipper shone again, only this time, it landed in Flying Cloud City, in Gu household.
+
+What followed was a beam of light shining across the sky that made Shangguan Feiyun’s sword pause from falling down.
+
+“Wait!”
+
+Baili Jingwei shouted in haste, looking at the distant light and turned to the array masters, “What is that?”
+
+One array master stepped forward and bowed, “Prime Minister, the world has its own laws and so does arrays. In general, the more power is amassed the greater the effect. This is true for all arrays, teleportation arrays included. He has set up such a star array so fast and small scale in the Flying Cloud manor and using sacred stones, proving his skill and quick thinking. But such array won’t work over large distances. It would have needed a larger and more time consuming array to do so. Something impossible in the central area where someone would have easily noticed. This means he has only used it to escape the manor…”
+
+Pa!
+
+Baili Jingwei instantly reacted with an angry slap and cursing, “Damn it, fool, say it from the start! Since he hasn’t gotten far, we have to give chase. Sword King Feiyun, take the kid and let’s go!”

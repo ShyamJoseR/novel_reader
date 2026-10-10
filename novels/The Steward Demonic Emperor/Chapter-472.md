@@ -1,0 +1,123 @@
+# Chapter 472: Where Your Heart Is
+
+It was plain to see what he wanted. Zhuo Fan smiled, handing over the vial, “Elder Yan, are you curious to try your hand, challenge yourself by making a 10th grade pill? “
+
+“Steward Zhuo, you’re letting me do it?” Licking his lips, Yan Song was worried, “What if I fail? It will be a waste of such a rare gem.”
+
+“There’s plenty more where that came from.”
+
+Zhuo Fan laughed with a casual wave. He gave him a paper, “Here’s the formula. Achieve success and you will not only save Elder Li, but bring Luo clan to a whole new level.”
+
+Yan Song had a silly smile, taking the items, “With a tyrant like Steward Zhuo at my back, it is everything an alchemist ever dreamed of. I will give my all in refining it. I won’t let you down.”
+
+Yan Song hardened his will.
+
+Zhuo Fan plotted for the last battle while filling his free time with a casual refining of war puppets over the next seven days.
+
+Zhuo Fan wanted to check on Yan Song’s progress when the alchemist came over laughing, “Steward Zhuo, I did it…”
+
+Zhuo Fan was taken aback.
+
+[It hasn’t been long since Yan Song became a 9th grade alchemist, yet made a 10th grade pill so easily?] He figured giving the first vial of Heavenly Dew was to help his progress, yet the result…
+
+Zhuo Fan held more praise for the old man.
+
+[Vicious Pill King in name and skill.] A shame he met the Demonic Emperor so late, or he’d be way above a 9th grade alchemist.
+
+Yan Song cackled in glee and showed a vial, “Steward Zhuo, what do you think of my 10th grade pill? Though I had to use the whole dew to make it.”
+
+“That’s not bad at all.” Zhuo Fan smiled and opened it.
+
+As the thick pill fragrance hit him, his blood sped up.
+
+[Top 10th grade, and on the old coot’s first time too! Astonishing.]
+
+Zhuo Fan gulped the pill and sat cross legged.
+
+Six hours whistled by and Zhuo Fan’s aura exploded into the 5th layer of Profound Heaven Stage. Then 6th.
+
+Zhuo Fan felt his newfound power surging through his newly widened meridians, “Ha-ha-ha, Elder Yan, that’s a fine Heaven Reaching Pill you’ve made there. You’re a true genius of alchemy!”
+
+Yan Song flushed, giggling.
+
+“Here, do your best in refining and saving Elder Li!” Zhuo Fan gave him ten more vials of Heavenly Dew.
+
+Yan Song was overjoyed, “Ha-ha-ha, with a money bag like sir behind us, it’s our greatest blessing.”
+
+“Elder Yan, not to brag, but I have top ingredients to spare. I have no qualms squandering on such a dedicated alchemist. “
+
+Yan Song gave a firm nod as he shook.
+
+Testing himself and his limits in alchemy every step of the way was an alchemist’s wet dream.
+
+But reality always came crashing down like a ton of bricks. Ignoring one’s skill and cultivation, turning a top ingredient into an equally top pill was easier said than done.
+
+Searching for that rare ingredient for decades only to fail in refining it would make all that blood and sweat go to waste.
+
+While Zhuo Fan, throwing away ingredients these alchemists had never even heard of, was acting in the full capacity of the best, or worst, spendthrift that ever lived, or would live.
+
+An infinitesimal amount Zhuo Fan got from Vaulting Kunpeng’s treasury, true, but even this might have made these poor schmucks rich beyond their wildest dreams.
+
+To the point that no one, be it sect or nation, could hold a candle to Zhuo Fan’s inherited ‘legacy’.
+
+Yan Song, drinking from the tap, was moved to tears. Affirmed once more of how right he was in throwing his lot to Zhuo Fan’s way. [He’s a friggin’ reliable wastrel of a master!]
+
+With Zhuo Fan’s grand style in throwing his wealth around, all alchemists would be flocking in droves, hugging his legs until he budged.
+
+He was the idol of everyone.
+
+[Rich boy, let’s be friends!]
+
+“Big brother Zhuo, godfather is in danger!” Zhuo Fan turned to see Luo Yunhai running over.
+
+Yan Song bowed, “Young master!”
+
+Zhuo Fan saw it coming, “Dugu Zhantian is loyal to a fault and inflexible. This day was bound to come sooner or later.”
+
+“Big brother Zhuo, y-you knew?” Luo Yunhai was speechless.
+
+Zhuo Fan nodded with a sagely look, “Why else did you think I fought Regent Estate when I did? Even as Dugu Army had us surrounded, I ignored it. You take me for that much of a stuck-up? Ha-ha-ha, it’s because I knew there was someone out there wanting Dugu Zhantian’s death more than us.”
+
+“Quanrong!” The jade shook in Luo Yunhai’s hand.
+
+Zhuo Fan glanced over, “I see, the old coot has the Quanrong surrounding him to cry for help. That makes perfect sense.”
+
+“Big brother Zhuo, we must help godfather! The Quanrong will have him starve to death. We must move now!”
+
+Zhuo Fan had only a twisted smile to his urgency, “Must? And why should I? They were after us just a little while ago, yet now we’re supposed to save them?”
+
+Luo Yunhai choked.
+
+Yan Song laughed, “Young master, it was Dugu Zhantian who broke his ties with you to become enemies. Now that he’s in peril, asking the national traitors he was out to root out is the cruelest irony of all, ha-ha-ha…”
+
+Luo Yunhai bit his lip, sighing, “No matter what he does to me, he’s still my godfather. He only came for me due to imperial edict. Godfather is loyal to the core and will never go against his lord’s will. I am of firm belief that he was torn, having to set his soldiers on us…”
+
+“So?”
+
+Zhuo Fan blurted, “I’d respect him more if he went on a crusade against us. Being in inner turmoil yet still going to war makes him a Loser God; what a funny title. Anyone would fail when going into war half-assed. His fate was sealed the minute he pledged loyalty to that lord of his. There’s no bigger loser out there. He who knows nothing about right or wrong, does not follow his heart, and yet preaches undying loyalty to his king is the biggest fool and deserves nothing but death.”
+
+“Steward Zhuo makes sense.”
+
+Yan Song clapped, “Young master, the old man broke all ties with you and was about to kill his godson because of some edict. Why would you ever want to help such a failure of a godfather?”
+
+Luo Yunhai turned bitter, pleading still, “Big brother Zhuo, do you remember our difficulty? You could have left and roamed the world alone but still stayed to look after us and Captain Pang in fighting enemy after enemy to save our lives. Why?”
+
+“Can’t let go.” Zhuo Fan frowned and blurted.
+
+“Why?” Luo Yunhai pursued.
+
+Zhuo Fan said, “My heart wasn’t at peace.”
+
+“I am the same.” Luo Yunhai pointed at his heart, “I don’t want to live with the regret of not helping godfather. Big brother Zhuo acted from his heart, and now I act out of mine and not for our past relationship. I hope you will help me.”
+
+Zhuo Fan squinted. Luo Yunhai stared back, his gaze unfaltering.
+
+Zhuo Fan said, “Elder Yan, call young Sanzi. We three will go to Lone Goose Gorge.”
+
+Luo Yunhai brightened.
+
+Yan Song started, “Steward Zhuo, you’re really going to save him? What if he fights us because of the emperor again?”
+
+“Inconsequential. I am not saving the old bag of bones, but listening to my Clan Head’s order. As his steward, I must do everything to help him!” Zhuo Fan was filled with zest.
+
+Luo Yunhai was touched while Yan Song’s face fell as he went to fetch Gu Santong…

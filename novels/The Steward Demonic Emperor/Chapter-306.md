@@ -1,0 +1,133 @@
+# Chapter 306, Deadly Miasma
+
+“What do we do, brother?” The frightened Long Kui turned to Long Xingyun.
+
+Long Xingyun wasn’t fairing any better, his eyes darting everywhere. Noticing the 36 pylons, his face grew grave, “If we want to survive we have to first get out of the array. The 36 lights are tied together, making it impossible to break the array from the inside. We need to find the exit if we want to escape!”
+
+Long Kui and the rest were even more restless. Looking at the flood of enemies charging, their faces were ashen.
+
+How were they supposed to do that when that army would make sure to keep them trapped here even tighter than the array?
+
+The array’s only use was to rob them of their chance to escape. It made even Profound Heaven expert’s flying impossible, to the extent that even Six Dragons and One Phoenix were incapable of doing it.
+
+Everyone hung their heads in despair, having lost their will to fight.
+
+“Humph, it’s just finding an exit. Is that so hard? We’ll just have to try them one by one!” A snort came just as a black figure flashed into the enemy’s ranks.
+
+Golden light blossomed as it flew in every direction. Wherever it landed, explosions resounded, paving the ground with hundreds of corpses. The blood flew into the air, only to fall right back down, onto the scattered limbs.
+
+They saw how the twisted smiles of the enemy had now turned into ones of horror at the sight of this man.
+
+Sword Marquise Abode’s eldest young master, martial fanatic Xie Tianshang!
+
+Xie Tianshang rested his sword, but his cold eyes glinted like daggers. Any that met his gaze would feel as if stabbed by a thousand swords.
+
+His dauntless figure stood unchallenged like an unparalleled sword. The enemy was deterred, in fear of what might happen if they got even an inch closer.
+
+Long Xingyun blinked, then turned ecstatic, “Brother Xie lives up to be a true martial fanatic. How dependable!”
+
+“But of course. My brother has been obsessed with martial arts since young, training day in day out without a rest. If not for those two monsters, my brother would’ve been invincible!” Xie Tianyang spoke with pride.
+
+Everyone else sighed inside.
+
+[Xie Tianshang is the number one swordsman in Tianyu. Not even Six Dragons and One Phoenix can match his talent.]
+
+Just that Heaven-shaking Dragon Lord upstaged him, followed closely by that bad apple Zhuo Fan, sealing any chance at showcasing his might.
+
+With those two out of the picture, the world would finally bear witness to the true might of this martial fanatic!
+
+Rolling his eyes, Long Xingyun roared, “Brother Xie, clear a path. We’re right behind you!”
+
+Grinning, Xie Tianyang said, “Brother Long is so shrewd in bringing up the rear. When my brother pushes through the array and is too exhausted to carry on, you could just run off!”
+
+“Ha-ha-ha, brother Tianyang, no need to split hairs. We are allies here. You help me now, and I’ll help you later. We will both benefit!” Long Xingyun pointed at Xie Tianshang, “Moreover, don’t you find your brother quite willing to be made use of?”
+
+Sure enough, Xie Tianshang’s eyes lit up at this proposal, as if he was just waiting for it, “Alright!”
+
+Every swing of the sword sent golden light everywhere. Flowing Space’s Nine Forms were performed to the full extent of their splendor, at the expense of crushed enemies and strewn corpses. It only took seconds for the casualties to reach a thousand.
+
+As the surroundings glowed bloody, now so too did the earth!
+
+Xie Tianyang shook his head as his brother was hell bent on mowing through the enemy like they were training dummies.
+
+[Sigh, the martial fanatic side of my brother is once again rearing its head. Nothing short of exhaustion or defeat could ever stop his blade now.]
+
+The others found Sword Marquise Abode’s eldest young master’s bursting courage contagious. It reached a point where some even wanted to join the man in his charge.
+
+But taking a closer look, one saw a bloodshot Xie Tianshang, slaughtering every which way with a manic grin on his face.
+
+That threw a bucket of cold water on their enthusiasm. [He’ll kill us just the same!]
+
+Long Xingyun rubbed his chin, nodding at the crazed figure. He guessed there was no pressure in finding the exit. At least with Xie Tianshang on a killing spree, the enemy would swiftly be disposed off.
+
+At the very least, sans Zhuo Fan and Huangpu Qingtian, Xie Tianshang had become the de-facto God of War, killing gods, demons, buddha and what not.
+
+“Xie Tianshang, don’t be so smug. Face me for a change!” A shout revealed a black figure charging Xie Tianshang.
+
+Xie Tianshang was overjoyed, “Ha-ha-ha, Yan Bangui, you’re just in time. I grow tired of killing ants. Now I can finally hone my sword on you.”
+
+Xie Tianshang pointed the sword at the sky.
+
+The sword energy burst with incredible might and sharpness.
+
+Yan Bangui squinted and leaned out of the way. The sword energy grazed his shoulder, peeling his flesh and making him clench his teeth from pain.
+
+The sword energy shot for the skies, where it exploded and rattled the 36 pylons. The men inside even had to spit blood.
+
+It dawned on everyone how mighty Xie Tianshang’s sword truly was, of the danger he represented.
+
+Yan Bangui couldn’t afford to dodge again, forced to face Xie Tianshang head on. A green miasma drifted from his hand as he made a palm attack for Xie Tianshang’s face.
+
+Xie Tianshang turned serious and dodged in a rush.
+
+The miasma struck the earth with a bang, catching others in its path unprepared. It bored into them, eliciting a wail of agony, all while blood flowed like rivers from their twisted visage.
+
+In mere seconds, all that remained were foul and reeking puddles of blood, good only to make one’s stomach turn.
+
+Xue Ningxiang hunkered behind Xie Tianyang as horror set in. The rest weren’t faring any better, shocked at Yan Bangui’s capacity for cruelty.
+
+Xie Tianshang squinted, his face stony, but not a trace of fear.
+
+Xie Tianshang’s sword danced in his hand as he unleashed the nine forms. Yan Bangui dodged in panic, not for a second was he going to take the brunt of such deadly force. They hammered the array and the 36 men in the light pylons heaved blood for a total of nine times. Even the bloody sky dulled.
+
+The array was about to break!
+
+Yan Bangui was soaked in sweat, his heart a mess. If this kept up, he wouldn’t even win, least of all kill the enemy.
+
+They had worked painstakingly in removing Zhuo Fan from the mix, only to meet another freak, Xie Tianshang.
+
+It was common knowledge that the Six Dragons and One Phoenix, Huangpu Qingtian excluded, were on the same level, more or less. But this guy…
+
+Yan Bangui’s face sank, [If this operation fails, the plan to end Zhuo Fan will fall through.] Huangpu Qingtian wasn’t going to take his failure lightly, that was for sure.
+
+Yan Bangui gnashed his teeth and released a seven colored miasma, the signature move of Pill King Hall, Rainbow Cloud Palm!
+
+The miasma spread, swallowing enemy and friends alike, leaving behind naught but a bloody cesspool of festering pus.
+
+In the hands of Yan Bangui, with his poisonous body, the Rainbow Cloud Palm was even more devastating!
+
+It was not without its demerits either. As the poison grew in strength, so too did his agony. Rainbow Cloud Palm was a double-edged sword, each time it was used it gnawed at the user’s body. And because it was him using it, the poison traveled through him far faster than any of his clansmen.
+
+Yan Bangui’s face visibly darkened, with thick green blood dripping from his mouth. The wound on his shoulder festered as well, looking to turn him into a blood puddle.
+
+But he bore it, his hands still releasing that devastating miasma.
+
+He had to complete Huangpu Qingtian’s mission, or he’d be dead either way…
+
+Xie Tianshang stared at the source of the miasma. He flicked his sword a few times, but the thick miasma swallowed them all like nothing.
+
+Xie Tianshang jumped back in the face of the spreading disease, next to Long Xingyun.
+
+They watched as hundreds of their enemies died a gruesome death, tormented amidst the drifting pestilence.
+
+“How vicious. Not even his allies are spared!” Xie Tianyang gnashed his teeth.
+
+Long Xingyun’s face grew hard, “We have no antidote for Pill King Hall’s Rainbow Cloud Palm. He is invincible. Numbers are useless when facing him! Once Rainbow Cloud Palm is in play, his dominance is assured. More so now, in this array. It’s just a matter of time before his poison kills us all.”
+
+“Isn’t there anything we can do?” Xie Tianshang trembled.
+
+Long Xingyun’s eyes glinted, “Of course there is. Break the array and the poison will scatter.”
+
+“Easy for you to say! I struck it ten times but it is still holding strong. I need more time, time we do not have…” Xie Tianshang sighed at the dull bloody sky.
+
+The others gnashed their teeth as well, drawing back just as the miasma crept nearer.

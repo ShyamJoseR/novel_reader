@@ -1,0 +1,99 @@
+# Chapter 294 - 294 - Tamer’s Battle Week - 30
+
+Taro returned to the stands amid cheers and applause from his companions. Min was the first to pounce on him, putting his arm around his neck and messing up his hair. Ren followed with a more restrained but equally sincere congratulation; he was proud of his friend.
+
+What was surprising wasn't just the congratulations from his roommates, but the small reception committee that had formed spontaneously. Roran and his group approached.
+
+"That was incredible!" exclaimed Trent, shaking Taro's hand enthusiastically. "We insect tamers glimpse a new era with you. Also Kai looked like he was going to explode with rage!"
+
+Han's team had also approached, though Han himself maintained a certain distance, observing from a few meters back with an unfathomable expression. Jun and Sora, however, showed no such reserve.
+
+"Good job," commented Jun simply, though the gleam of admiration in his eyes said more than his words.
+
+"It's going to be difficult to overcome that new defense style," added Sora with a smile.
+
+Jun sighed dramatically, looking at Ren. "Though I suppose it doesn't matter much what we do against it, considering we have to face you tomorrow in the team semifinals." He shook his head with feigned resignation. "It's the end of the line for us, so we just ask for some mercy, oh powerful lord of mushrooms."
+
+"Hey, I'm part of the team too!" Min jumped in, feeling ignored.
+
+The joke drew laughter from the group.
+
+"It will be an interesting combat," Ren responded, with anticipation rather than arrogance.
+
+For an instant, his eyes met Han's. Ren's smile remained, but his eyes contained a different depth when looking at the distant boy.
+
+The moment passed as quickly as it had come, interrupted by the announcement of the next individual combat.
+
+The matches continued at a good pace. Min faced a tamer with a fire beast, winning easily thanks to a 'brilliant' combination of invisibility and elemental advantage.
+
+Upon returning, he expected the same praise as Taro, but everyone looked at him with narrowed eyes because his confrontation had been too easy thanks to the elemental affinity.
+
+Finally, the turn that many had been waiting for arrived.
+
+"Liora Ashenway against Feng Zhao," announced Yang, his voice resonating throughout the stadium. "Present yourselves in the arena in three minutes."
+
+A murmur of anticipation ran through the stands. Feng, as Klein's close companion and high-level noble, had a considerable reputation. His red cobra, now at Bronze 1 rank, had shown impressive capabilities in previous combats. But facing an Ashenway, especially after the demonstration of power that Liora and Larissa had offered in the team combats, was another level of challenge.
+
+"This is going to be interesting," commented Taro, still excited from his own victory. "Feng has attacks with a lot of range, but Liora..."
+
+"Has that annoying ability to jump through space," completed Min. "Not to mention that will-o'-wisp that seems to have a mind of its own and the same or greater range."
+
+Ren observed attentively as both competitors entered the arena. Liora walked with the natural grace characteristic of the Ashenways, her expression serene but alert. Feng advanced with aggressiveness.
+
+"Feng's cobra is stronger and more resistant now, besides giving better enhancements," observed Ren. "His control over its venom is much more refined as well."
+
+Indeed, when Feng invoked his beast, the difference was immediately apparent. The red cobra, now almost two meters in length, presented more elaborate markings on its extended hood. Its fangs, visible when it opened its jaws in an intimidating display, dripped a liquid that seemed to slightly corrode the ground where it fell.
+
+Liora, for her part, kept her will-o'-wisp partially materialized, small blue flames dancing around her fingers as she studied her opponent.
+
+"Begin," indicated Yang, stepping back to give space to the combatants.
+
+Feng wasted no time. With a quick gesture, he directed his cobra to attack. The creature launched forward, but instead of attacking directly, it began to expel a cloud of toxic vapor from its mouth.
+
+"He's developed the Poison Miasma ability," murmured Ren. "It's a good way to control the field."
+
+The cloud expanded rapidly, covering a considerable area of the arena. It had a sickly greenish color, and where it touched surfaces, these began to hiss.
+
+"It's a venom with acidic properties," Ren explained to his friends. "Doubly dangerous: it damages both by contact and inhalation."
+
+Liora, however, didn't seem particularly concerned. With an elegant movement, she executed one of her characteristic spatial jumps, disappearing in a blue flash to reappear several meters beyond the reach of the toxic cloud.
+
+"Nice trick," she commented, her voice resonating with the confidence of someone who had control.
+
+Feng narrowed his eyes, clearly annoyed by the ease with which his initial strategy had been avoided. He directed his cobra to expand the cloud more, covering an even larger portion of the arena.
+
+"You can jump all you want," he responded, an arrogant smile forming on his face. "But eventually you'll run out of space or energy."
+
+Liora responded with her own smile, serene and slightly amused. "Or I could simply do this."
+
+With a fluid gesture, she extended both hands toward the toxic cloud. Her will-o'-wisp intensified, the small blue flames growing to form a burning wave that launched directly against the miasma.
+
+The result was spectacular. Upon contact with the will-o'-wisp, the poisonous miasma instantly ignited.
+
+"The will-o'-wisp isn't common fire," explained Ren to no one in particular, though several nearby students listened attentively. "It consumes mana. It's, basically, the perfect counter for any thin mana construction that isn't based on the water element."
+
+Liora decided it was time to go on the offensive.
+
+"It's been useful to verify the utility of my ability against a higher rank skill," she declared, executing a particularly wide jump that positioned her directly behind Feng. "But I think it's time to end this."
+
+Before Feng could turn completely, Liora had sent a concentrated wave of will-o'-wisp.
+
+Feng returned and redirected the summon of his cobra to his back, without even turning, just in time to avoid the direct attack, but...
+
+The blue flames enveloped the creature, not burning it in the traditional sense, but consuming its energy. Liora pushed herself to the maximum to increase the output of her flames, and for a moment they became darker, but few noticed.
+
+The effect was too effective against the beast despite having a higher level.
+
+The flames began to overcome the cobra, which was disintegrating and ceasing to function as a shield.
+
+Feng screamed when the blue fire licked his arms and chest, a pain that temporarily paralyzed his mind. He fell to his knees, his concentration broken and his cobra vanishing in a flash of reddish light.
+
+"I... I surrender," he gasped, acknowledging his defeat.
+
+Yang approached to verify his condition before officially declaring: "Victory for Liora Ashenway!"
+
+The applause was immediate and enthusiastic, especially from the sectors close to Selphira and her supporters from other noble families. Liora accepted the ovation with an elegant nod.
+
+While the medical auxiliaries attended to Feng to neutralize any residual effect of the will-o'-wisp, the next combat was announced.
+
+"Larissa Dravenholm against Astor Blackwood."
