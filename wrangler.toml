@@ -1,13 +1,10 @@
 # wrangler.toml
 name = "novel-reader"
-main = "./server/worker.js"          # will be generated in the next step
+main = "./server/worker.js"
 compatibility_date = "2024-10-01"
-pages_build_output_dir = "./client/dist"   # static site location
 compatibility_flags = ["nodejs_compat"]
 
-# -------------------------------------------------
-# OPTIONAL – If you need KV, Secrets, etc.
-# [[kv_namespaces]]
-# binding = "DB"
-# id = "<kv-id>"
-# -------------------------------------------------
+[assets]
+directory = "./client/dist"
+binding = "ASSETS"
+not_found_handling = "single-page-application"

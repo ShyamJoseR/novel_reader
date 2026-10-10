@@ -8,10 +8,6 @@
     "build": "npm --prefix client install && npm --prefix client run build && node scripts/build-static-data.js",
     "test:api": "node server/test-api.js"
   },
-  "workspaces": [
-    "client",
-    "server"
-  ],
   "keywords": ["novel", "reader", "tts", "webnovel", "audiobook"],
   "author": "",
   "license": "MIT"
